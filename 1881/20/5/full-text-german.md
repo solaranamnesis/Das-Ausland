@@ -40,3 +40,9 @@ Die Crinoiden finden sich nach Dr. Hahn „von der einfachsten Form eines geglie
 Manche „Crinoiden“ bestehen nach Herrn Dr. Hahn „bloß aus einer beliebigen Anzahl von Armen“; die Stiele und Kronen scheinen also diesen Crinoiden zu fehlen, und finde ich es deshalb vollkommen gerechtfertigt, wenn sie Herr Dr. Hahn als eine „besondere Art“ hinstellt. Diesen „besonderen“ Crinoiden könnte etwa ein Fifch, der nur aus Floffen besteht, würdig zur Seite gestellt werden.
 
 Es dürfte für Viele von Interesse sein, zu erfahren, daß Herr Dr. Hahn bei vielen seiner Crinoiden nicht nur Stiel und Krone, sondern auch die „Mundöffnung zwischen den Höckern“, und - man höre und staune - sogar Muskelschichten ganz deutlich beobachtet hat!!
+
+Wenn man die angeblichen Organismen der Chondrite mit terrestrichen Formen vergleicht, so muß man für dieselben wohl auch ähnliche Existenzbedingungen vorausfetzen; aus dieser Vorausfetzung muß man konsequent folgern, daß die Chondrite als ein Analogon der terrestrischen klaftifchen Gesteine zu betrachten find. Gegen diese mit logischer Notwendigkeit sich ergebende Auffaffung spricht sich Herr Dr. Hahn auf das Entschiedenste aus und sucht für die Chondrite eine Bildungsweife geltend zu machen, welche unsere bisherigen Ansichten über die Kosmogenie wesentlich alteriert. Geht man indessen von den Prämiffen, wie sie Herr Dr. Hahn aufgestellt hat, aus, und versucht auf streng logischem Wege die Schlüsse zu ziehen, so gerät man bald in ein Chaos von Widersprüchen, die absolut nicht zu lösen find.
+
+Auch vom Standpunkte des Chemikers könnte man dem Hahn'schen Werke mancherlei Einwendungen machen; ich will mich indessen darauf nicht weiter einlassen und nur noch erwähnen, daß man solche Ansichten, wie sie Herr Dr. Hahn z. B. über die Entstehung der Gebirge und über die Vulkane entwickelt, heutzutage selbst einem Laien unmöglich verzeihen kann.
+
+Brünn, am 25. April 1881.
