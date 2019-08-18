@@ -36,6 +36,12 @@ Noch könnte man wohl fragen, wie es kam, daß bei der großen Anzahl von Meteor
 
 Dennoch haben einzelne Beobachter, besonders Direktor Gümbel in seiner Beschreibung der Meteorite von Eichstedt und Schöneberg wahrscheinlich solche organische Formen vor sich gehabt. Er beschreibt dort ausführlich und sehr gut säulenförmige Fasern, ja, er spricht sogar von unregelmäßigeckigen, kleinsten Feldchen, die bei Querschnitten durch jene Fasern entstehen. Hier hatte er wahrscheinlich solche kleine favositenähnliche Korallen vor sich, dachte aber dabei noch an keine Oragnismen. Doch sagt Gümbel wie vorahnend bei Besprechung des Meteorits von Kaba: „Vielleicht gelingt es dennoch, die Anwesenheit organischer Wesen auf außerirdischen Körpern nachzuweisen.“
 
+Wir glauben nach dem Obigen, daß dies in der That unserem unermüdlichen Landsmann Dr. Hahn gelungen ist. Wäre Gümbel durch einen glücklichen Zufall auf ein Stück wie jenes obengenannte Unikum getroffen, deren es wohl freilich noch viele in der zwei Centner schweren Meteormasse von Knyahinya geben mag, so wäre er sicher der Entdecker dieser merkwürdigen Thatsache geworden.
+
+Ueber die Spongien und Krinoiden Hahns vielleicht ein ander Mal!
+
+***
+
 
 
 ...
