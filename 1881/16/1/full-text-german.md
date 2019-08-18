@@ -14,3 +14,6 @@ Auf irgend eine nähere zoologische Deutung der Formen und deren Vergleichung mi
 
 Eine große Anzahl dieser Bilder nun hat gewiß jeden Zoologen und Paläontologen aufs höchste überrascht. Ein für Korallengebilde geübtes Auge werden zunächst die Bilder Tafel I, Fig. 5 und 6, Tafel VIII und Tafel XV an wohlbekannte Korallenstrukturen erinnern. Wäre aber auch nur eine einzige dieser Formen sicher als eine organische nachgewiesen, so wäre der Bann gebrochen, und man dürste dann zuber sichtlicher auch an die organische Deutung der übrigen herantreten.
 
+Ueber jene obengenannten, für uns auffallendsten Formen nun, welche größtenteils von dem berühmten koloffalen Meteorfall von Knyahinya in Ungarn (9. Juni 1866) herrühren, erlauben wir uns einige Worte.
+
+Auf unseren Wunsch hat uns Dr. Hahn die Originalschlisse selbst, darunter ein äußerst wertvolles Unikum zur näheren Untersuchung überlassen, und wir hatten volle Muße, diese merkwürdigen Stücke mit Zuhilfenahme unserer eigenen ziemlich reichhaltigen Korallensammlung zu studieren. Das Resultat dieser Untersuchung aber ist die volle Ueberzeugung, daß wir es, bei diesen Gebilden wenigstens, wirklich mit Resten von Korallen zu thun haben, die meist in die Nähe der Favositinen gehören, einer Familie, die auf der Erde bis jetzt nur foffil und zwar in den paläolithischen, den ältesten Schichten der Erde gefunden worden.
