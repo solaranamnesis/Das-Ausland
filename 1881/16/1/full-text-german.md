@@ -30,5 +30,6 @@ Dieses Objekt nun ist offenbar ein vollständiges kleines, rundliches Korallenst
 
 Alle diese Korallengebilde in den Meteoriten find verkieselt. Es find Magnesiumssilikate, daher man sie als Olivine deutete.
 
+Noch aber ist eine äußerst merkwürdige Thatsache bezüglich dieser außerirdischen Korallengebilde zu konstatieren. Es ist dies die außerordentliche Kleinheit. Es ist eine wahre Liliput-Tierwelt gegenüber der irdischen. Das von uns soeben genannte Korallenstöckchen, das wir bald an einem anderen Orte (zu Ehrenseines Entdeckers unter dem Namen _Hahnia meteoritica_) ausführlicher beschreiben und abbilden werden, ist ein eben noch für ein gutes Auge sichtbares, weißes Tüpfelchen in dem Meteorschliff. Sein größter Durchmesser mißt nur 0,90 mm, die einzelnen Kelche durchschnittlich etwa nur 0,05 mm. Das find Verhältnisse, wie wir sie von keinem irdischen Polypenstock kennen, too Kelche von 1 mm Durchmesser schon sehr klein heißen. Doch werden wir uns auf noch ganz andere Dinge bei diesen außerirdischen Tierorganismen gefaßt machen müssen.
 
 ...
