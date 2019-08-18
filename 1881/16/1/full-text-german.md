@@ -34,5 +34,8 @@ Noch aber ist eine äußerst merkwürdige Thatsache bezüglich dieser außerirdi
 
 Noch könnte man wohl fragen, wie es kam, daß bei der großen Anzahl von Meteoriten, die in den mineralogischen Sammlungen liegen, und bei der nicht unbedeutenden Anzahl von Forschern, die sich damit beschäftigt, jene merkwürdigen, organischen Gebilde noch nicht entdeckt wordern find. Verschiedene Umstände mögen die Sache erklären. Einmal find die Meteorite immer seltene und theuere Stücke, die man nicht gerne opfert, daher im ganzen immerhin wenig Schliffe gemacht wurden, so daß die Wahrscheinlichkeit, daß gerade ein günftiges Objekt bei diesen Schliffen zur Anschauung kam, nicht eben groß war. Hahn aber hat mit wirklich außerordentlichen Opfern an Zeit und Geld nicht weniger als 600 Schliffe hergestellt. Sodann wurden dieselben meist nur mit der Loupe, selten mit stärkeren Mikroskopen, und immer nur wenige Schliffe untersucht.
 
+Dennoch haben einzelne Beobachter, besonders Direktor Gümbel in seiner Beschreibung der Meteorite von Eichstedt und Schöneberg wahrscheinlich solche organische Formen vor sich gehabt. Er beschreibt dort ausführlich und sehr gut säulenförmige Fasern, ja, er spricht sogar von unregelmäßigeckigen, kleinsten Feldchen, die bei Querschnitten durch jene Fasern entstehen. Hier hatte er wahrscheinlich solche kleine favositenähnliche Korallen vor sich, dachte aber dabei noch an keine Oragnismen. Doch sagt Gümbel wie vorahnend bei Besprechung des Meteorits von Kaba: „Vielleicht gelingt es dennoch, die Anwesenheit organischer Wesen auf außerirdischen Körpern nachzuweisen.“
+
+
 
 ...
