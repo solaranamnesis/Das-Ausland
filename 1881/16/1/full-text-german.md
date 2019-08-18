@@ -22,5 +22,9 @@ Die irdischen Polypenstöcke dieser Favositinen setzen sich aus parallel neben e
 
 Solche Polyparien, d. h. ganz favositenähnliche Röhrenbündel, treten nun in einer großen Anzahl der Meteoritenschlisse von Dr. Hahn auf, die von verschiedenen Meteorfällen herrühren. Mit voller Klarheit aber sieht man an vielen derselben gerade auch jene Querscheidewände und Löchelchen in Reihen und in bestimmten Distanzen von einander und zwar so regelmäßig, daß hier an einen Zufall durchaus nicht zu denken ist, so wenig als irgend ein Mineralog diese seinen Strukturverhältnisse, Querscheidewände und Löchelchen, die schon bei zweihundertsacher Vergrößerung deutlich find, die wir aber bis zu einer vierhundert achtzigsachen leicht versolgen konnten, mineralogisch zu deuten versuchen wird. Wir haben es hier sicher mit organischen Gebilden und zwar speciell mit favositenähnlichen Korallen zu thun.
 
+Leider find die meisten Schliffe parallel der Röhrenlage der Polyparien gegangen, was daher rührt, daß Hahn, um seine Schliffe zu erhalten, die Meteoritenmassen zerschlug, wo dann immer die Splitterung am leichtesten nach der Länge des Polypenstockes erfolgte.
+
+Nur ein einziger, wunderbar schöner Schliff, das obengenannte Unikum, gleichfalls von Knyahinya stammend, gewährt als Querschliff durch den Korallenstock die volle Einsicht von oben in die Kelche des Polypariums und in die Aneinanderreihung der Kelche selbst. Dieses Präparat allein schon ist gewiß für jeden Korallenkenner entscheidend. Leider giebt die photographische Abbildung, die Hahn in seinem Werke, Tafel X, Fig. 3 und 4 gegeben, bei weitem nicht das klare Bild, wie es das Objekt selbst unter einem guten Mikroskop aufs deutlichste darlegt, indem eine gelbliche Färbung des Präparats bei der Photographie störte.
+
 
 ...
