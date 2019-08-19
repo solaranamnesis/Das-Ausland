@@ -27,6 +27,12 @@ Herrn Rzehak aus Brünn aber ersuchen wir freundlichst, ehe er sich weiter in de
 
 Bei der ungeheuren Wichtigkeit, welche die in Obigem erörterte Frage für die moderne Naturwissenschaft befitzt und dem regen Interesse, welches die Diskussion darüber in den beteiligten Kreifen erregt, glaubt die Redaktion den vorstehenden Ausführungen Dr. Weinlands die solgenden Bemerkungen Dr. O. Hahns selbst unmittelbar anreihen zu follen. Dr. O. Hahn schreibt:
 
+In der Nr. 20 des „Auslands“ tritt Herr Anton Rzehak in Brünn gegen die „Organismen der Meteorite“ auf.
 
+Seine Beweise find in der Hauptsache folgende:
+
+1) Die Akademie in Paris hat die Sache nicht anerkannt.
+
+2) 
 
 ...
