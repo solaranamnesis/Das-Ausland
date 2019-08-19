@@ -8,6 +8,8 @@ Es ist sehr begreiflich, daß der Mineralog, sobald es sich um einen „Stein“
 
 Das Dr. Hahnsche Meteoritenwerk, das sich auf hunderte von Meteoritenschliffen, die von achtzehn verschiedenen Meteorfällen herrühren, gründet und das eine erste deutsche Autorität, Professor R., „mag die Deutung sein, welche sie will, ein ausgezeichnetes Prachtwerk von größtem, wissenschaftlichem Nutzen“ nennt, versucht Herr Rzehak aus Brünn kurz abzuthun zunächst mit Berufung auf einen franzöfifchen Mineralogen, der früher gleichfalls über Meteoriten schrieb und sich natürlich von Dr. Hahn, dem „savant allemand“, der, wenn auch ein allfeitig anerkannter, tüchtiger Mineralog und ausgezeichneter Mikroskopiker, doch nicht eigentlich Fachmann von Profession ist, - die Mangelhaftigkeit seiner Beobachtungen und besonders seiner Abbildungen nicht gerne nachweisen laffen konnte. Sodann berust sich Herr Rzehak des Weiteren auf seine eigenen Beobachtungen an einigen wenigen Meteoritenschliffen von dem Fall von Tiefchitz in Mähren, in denen er alles Material gefunden zu haben glaubt, um das ganze Werk von Dr. Hahn _ad absurdum_ zu führen. -
 
+Gweiß ist jeder Fachmann zuerst mit großen Zweifeln an dieses Werk herangetreten. Die Sache kam zu unerwartet. Manche der von Hahn abgebildeten Formen mußten zwar jedem Kenner der mikroskopischen, tierischen Struktur fofort als typisch organisch auffallen, aber die Herkunst der Gebilde eben so sehr zur Vorsicht mahnen. So hat denn auch unfres Wiffens kein deutscher Forfcher bis jetzt ein unbedingtes, positives oder negatives Urteil, zumal öffentlich, lediglich nach Ansicht des Werkes, ohne Einsichtnahme der Objekte selber, auszusprechen gewagt. -
+
 
 
 ...
