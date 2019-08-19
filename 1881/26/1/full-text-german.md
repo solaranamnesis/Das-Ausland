@@ -20,6 +20,8 @@ Nun einige Punkte:
 
 3) Der erste Eindruck, den man bei der Meffung dieser Meteoritformen erhält, ist der einer außerordentlichen Kleinheit, wie schon Hahn hervorhob und wie ich dies auch in jenen, meinen ersten Notizen im „Ausland“ bemerkt habe. Seit aber eine größere Anzahl der Formen als Foraminiferen und Radiolarien erkannt find, deren Größe ganz gut zu der der irdischen Formen stimmt, bleiben eigentlich nur noch die Korallen der Meteorite als ungewöhnlich kleine Gebilde übrig. Doch auch bei diesen ist das Verhältnis kein so ganz außerordentliches. Auch von irdischen Korallen kennt man Kelche von 1 ja sogar 1/2 mm Durchmesser, während die der Meteorite bis zu 0,1 mm messen. Ebenso giebt es auch von irdischen Schwämmen bekanntlich mikroskopisch kleine Arten. Wenn wir außerdem bedenken, daß wir bei diesen Meteoriten immer nur mit Dünnschliffen arbeiten, so ist verständlich, daß größere Formen nicht leicht - auch nur als Bruchstücke  - gut zahllofen Struktursetzen, die wir in den Schliffen beobachten, größeren Formen angehören dürften.
 
-4) Ein großes Mifzverftändnis wäre die Annahme, 
+4) Ein großes Mifzverftändnis wäre die Annahme, die mir kürzlich in einem Briefe eines bedeutenden Schriftftellers entgegentrat und die vielleicht auch Anderen, welche die Zusammensetzung der Chondritmeteoriten nicht kennen, sich nahe gelegt haben möchte, daß nämlich jene organischen Formen Reste niederer Tiere sein könnten, die außen auf der Oberfläche jener Meteoriten während ihres Laufes durch den Weltraum enstsanden wären. Dies ist natürlich durchaus nicht der Fall. Jene Gebilde find vielmehr Einschlüsse in den Meteoriten. Es find Petrefakten, nichts anderes und die Chondritmeteoriten selber erscheinen uns bis jetzt in der That lediglich als Petrefaktenführende Felstrümmer eines fremden Weltkörpers, aber wahrlich als solche interessant genug. -
+
+
 
 ...
