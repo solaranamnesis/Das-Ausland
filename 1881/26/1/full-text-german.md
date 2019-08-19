@@ -50,6 +50,7 @@ Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, daß e
 
 Wenn sich Herr Rzehak auf das Urteil der _Comptes rendus_ beruft, so muß ich beifügen, daß das Mitglied der Pariser Akademie, Herr Daubrée, (nicht Dumas) welcher mein Werk entgegennahm, mir erwiderte: er habe durch Schmelzung ähnliche Formen, wie ich in den Chondriten fand, erhalten; auf meine Bitte um Mitteilung eines solchen Schmelzprodukts aber erhielt ich weder Antwort noch viel weniger ein solches Produkt: ein Verfahren, welches nicht für die Richtigkeit einer Behauptung spricht.
 
+Herr Daubrée hat in seinem Buche „Experimentalgeologie“ S. 386 den Meteorstein von Knyahynia abgebildet, freilich sehr wenig genau. Daß die Einschlüsse Strukturen haben, hat er übersehen, aus dem einfachen Grunde, weil alle seine Untersuchungen mit Pulvern und Schmelzen der Steine anfingen.
 
 
 ...
