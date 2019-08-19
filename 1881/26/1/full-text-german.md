@@ -33,6 +33,10 @@ Seine Beweise find in der Hauptsache folgende:
 
 1) Die Akademie in Paris hat die Sache nicht anerkannt.
 
-2) 
+2) Die Merkmale eines organischen Wefens find von Hahn nicht richtig angegeben, weil - zwei der fünf von ihm angegebenen Merkmale für sich noch kein Beweis eines Organismus find.
+
+3) Es giebt - und hier beruft sich Herr Rzehak auf ein mit einem Fragezeichen verfehenes Mineral (Feldspat?) welches einen ziemlich deutlichen, säuligen Bau, aber freilich in diesen Säulen keine radiale Anordnung habe - auch Röhrenbildungen im Mineralreich, also müssen, schließt er, die Röhren in den Chondriten nicht notwendig organischen Ursprungs sein.
+
+4)
 
 ...
