@@ -37,6 +37,10 @@ Seine Beweise find in der Hauptsache folgende:
 
 3) Es giebt - und hier beruft sich Herr Rzehak auf ein mit einem Fragezeichen verfehenes Mineral (Feldspat?) welches einen ziemlich deutlichen, säuligen Bau, aber freilich in diesen Säulen keine radiale Anordnung habe - auch Röhrenbildungen im Mineralreich, also müssen, schließt er, die Röhren in den Chondriten nicht notwendig organischen Ursprungs sein.
 
-4)
+4) Enstatit und Turmalin haben Querklüfte, welche leicht mit Querscheidewänden von Organismen verwechfelt worden sein können.
+
+5) In dem Mineral „Feldspat (?)“ fah Herr Rzehak mehrere in einer Längsreihe geordnete Einschlüsse: folglich find, schließt er, „offenbar“ solche Einschlüsse in Chondritmineralien irrtümlich für „Perforationen“ gehalten worden.
+
+6) 
 
 ...
