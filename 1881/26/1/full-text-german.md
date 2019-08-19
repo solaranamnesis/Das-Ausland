@@ -20,7 +20,8 @@ Nun einige Punkte:
 
 3) Der erste Eindruck, den man bei der Meffung dieser Meteoritformen erhält, ist der einer außerordentlichen Kleinheit, wie schon Hahn hervorhob und wie ich dies auch in jenen, meinen ersten Notizen im „Ausland“ bemerkt habe. Seit aber eine größere Anzahl der Formen als Foraminiferen und Radiolarien erkannt find, deren Größe ganz gut zu der der irdischen Formen stimmt, bleiben eigentlich nur noch die Korallen der Meteorite als ungewöhnlich kleine Gebilde übrig. Doch auch bei diesen ist das Verhältnis kein so ganz außerordentliches. Auch von irdischen Korallen kennt man Kelche von 1 ja sogar 1/2 mm Durchmesser, während die der Meteorite bis zu 0,1 mm messen. Ebenso giebt es auch von irdischen Schwämmen bekanntlich mikroskopisch kleine Arten. Wenn wir außerdem bedenken, daß wir bei diesen Meteoriten immer nur mit Dünnschliffen arbeiten, so ist verständlich, daß größere Formen nicht leicht - auch nur als Bruchstücke  - gut zahllofen Struktursetzen, die wir in den Schliffen beobachten, größeren Formen angehören dürften.
 
-4) Ein großes Mifzverftändnis wäre die Annahme, die mir kürzlich in einem Briefe eines bedeutenden Schriftftellers entgegentrat und die vielleicht auch Anderen, welche die Zusammensetzung der Chondritmeteoriten nicht kennen, sich nahe gelegt haben möchte, daß nämlich jene organischen Formen Reste niederer Tiere sein könnten, die außen auf der Oberfläche jener Meteoriten während ihres Laufes durch den Weltraum enstsanden wären. Dies ist natürlich durchaus nicht der Fall. Jene Gebilde find vielmehr Einschlüsse in den Meteoriten. Es find Petrefakten, nichts anderes und die Chondritmeteoriten selber erscheinen uns bis jetzt in der That lediglich als Petrefaktenführende Felstrümmer eines fremden Weltkörpers, aber wahrlich als solche interessant genug. -  
+4) Ein großes Mifzverftändnis wäre die Annahme, die mir kürzlich in einem Briefe eines bedeutenden Schriftftellers entgegentrat und die vielleicht auch Anderen, welche die Zusammensetzung der Chondritmeteoriten nicht kennen, sich nahe gelegt haben möchte, daß nämlich jene organischen Formen Reste niederer Tiere sein könnten, die außen auf der Oberfläche jener Meteoriten während ihres Laufes durch den Weltraum enstsanden wären. Dies ist natürlich durchaus nicht der Fall. Jene Gebilde find vielmehr Einschlüsse in den Meteoriten. Es find Petrefakten, nichts anderes und die Chondritmeteoriten selber erscheinen uns bis jetzt in der That lediglich als Petrefaktenführende Felstrümmer eines fremden Weltkörpers, aber wahrlich als solche interessant genug. -
+
 Herrn Rzehak aus Brünn aber ersuchen wir freundlichst, ehe er sich weiter in der Sache vernehmen läßt, entweder um gütige Einsichtnahme unserer Schliffe selbst oder aber - um geduldiges Weiterschleifen und dann um Weitermikroskopieren, wie Hahn und Ich es Monate lang gethan. Wer weiß, er wird dann vielleicht auf die eine oder andere Art ein Verfechter der Hahn'schen Entdeckung, wie es erst vor kurzem ein wohlbekannter füddeutfcher Mineralog und Paläontolog an meinem Mikroskop geworden.
 
 ***
@@ -41,6 +42,12 @@ Seine Beweise find in der Hauptsache folgende:
 
 5) In dem Mineral „Feldspat (?)“ fah Herr Rzehak mehrere in einer Längsreihe geordnete Einschlüsse: folglich find, schließt er, „offenbar“ solche Einschlüsse in Chondritmineralien irrtümlich für „Perforationen“ gehalten worden.
 
-6) 
+6) Auch Hagelkörner kommen vor, welche Aehnlichkeit mit der Struktur der Chondrite haben. (Gümbel.)
+
+Was weiter vorgebracht ist, ist bloß Kritik von Schlußfolgerungen, welche ich deshalb bei Seite laffe, weil, wenn meine Thatsachen richtig find, diese Kritik von selbst fällt.
+
+Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, daß es dieselbe Akademie ist, welche neun Jahre lang nach dem Erscheinen von Chladnis Buche über den kosmischen Ursprung der Meteorite noch die Behauptung des Fallens von Meteorsteinen für einen Wahnfinn erklärte, dann aber doch, freilich erst nach neun Jahren, durch einen - Poftknecht sich von der Unrichtigkeit ihrer bisherigen Meinung überzeugen ließ. Ihr Troft waren damals folgende Sätze: „Der Dumme glaubt,“ „der Halbgebildete entscheidet,“ „der Gebildete prüft,“ gewiß ein leichter Troft für solche Irrtümer (Quenstedt, Klar und Wahr S. 287).
+
+
 
 ...
