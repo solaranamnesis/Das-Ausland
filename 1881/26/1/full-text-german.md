@@ -46,7 +46,7 @@ Seine Beweise find in der Hauptsache folgende:
 
 Was weiter vorgebracht ist, ist bloß Kritik von Schlußfolgerungen, welche ich deshalb bei Seite laffe, weil, wenn meine Thatsachen richtig find, diese Kritik von selbst fällt.
 
-Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, daß es dieselbe Akademie ist, welche neun Jahre lang nach dem Erscheinen von Chladnis Buche über den kosmischen Ursprung der Meteorite noch die Behauptung des Fallens von Meteorsteinen für einen Wahnfinn erklärte, dann aber doch, freilich erst nach neun Jahren, durch einen - Poftknecht sich von der Unrichtigkeit ihrer bisherigen Meinung überzeugen ließ. Ihr Troft waren damals folgende Sätze: „Der Dumme glaubt,“ „der Halbgebildete entscheidet,“ „der Gebildete prüft,“ gewiß ein leichter Troft für solche Irrtümer (Quenstedt, Klar und Wahr S. 287).
+Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, daß es dieselbe Akademie ist, welche neun Jahre lang nach dem Erscheinen von Chladnis Buche über den kosmischen Ursprung der Meteorite noch die Behauptung des Fallens von Meteorsteinen für einen Wahnfinn erklärte, dann aber doch, freilich erst nach neun Jahren, durch einen - Postknecht sich von der Unrichtigkeit ihrer bisherigen Meinung überzeugen ließ. Ihr Trost waren damals folgende Sätze: „Der Dumme glaubt,“ „der Halbgebildete entscheidet,“ „der Gebildete prüft,“ gewiß ein leichter Trost für solche Irrtümer (Quenstedt, Klar und Wahr S. 287).
 
 
 
