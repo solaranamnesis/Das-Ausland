@@ -48,6 +48,8 @@ Was weiter vorgebracht ist, ist bloß Kritik von Schlußfolgerungen, welche ich 
 
 Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, daß es dieselbe Akademie ist, welche neun Jahre lang nach dem Erscheinen von Chladnis Buche über den kosmischen Ursprung der Meteorite noch die Behauptung des Fallens von Meteorsteinen für einen Wahnfinn erklärte, dann aber doch, freilich erst nach neun Jahren, durch einen - Postknecht sich von der Unrichtigkeit ihrer bisherigen Meinung überzeugen ließ. Ihr Trost waren damals folgende Sätze: „Der Dumme glaubt,“ „der Halbgebildete entscheidet,“ „der Gebildete prüft,“ gewiß ein leichter Trost für solche Irrtümer (Quenstedt, Klar und Wahr S. 287).
 
+Wenn sich Herr Rzehak auf das Urteil der _Comptes rendus_ beruft, so muß ich beifügen, daß das Mitglied der Pariser Akademie, Herr Daubrée, (nicht Dumas) welcher mein Werk entgegennahm, mir erwiderte: er habe durch Schmelzung ähnliche Formen, wie ich in den Chondriten fand, erhalten; auf meine Bitte um Mitteilung eines solchen Schmelzprodukts aber erhielt ich weder Antwort noch viel weniger ein solches Produkt: ein Verfahren, welches nicht für die Richtigkeit einer Behauptung spricht.
+
 
 
 ...
