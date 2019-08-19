@@ -10,6 +10,6 @@ Das Dr. Hahnsche Meteoritenwerk, das sich auf hunderte von Meteoritenschliffen, 
 
 Gweiß ist jeder Fachmann zuerst mit großen Zweifeln an dieses Werk herangetreten. Die Sache kam zu unerwartet. Manche der von Hahn abgebildeten Formen mußten zwar jedem Kenner der mikroskopischen, tierischen Struktur fofort als typisch organisch auffallen, aber die Herkunst der Gebilde eben so sehr zur Vorsicht mahnen. So hat denn auch unfres Wiffens kein deutscher Forfcher bis jetzt ein unbedingtes, positives oder negatives Urteil, zumal öffentlich, lediglich nach Ansicht des Werkes, ohne Einsichtnahme der Objekte selber, auszusprechen gewagt. -
 
-
+Die oben berührten Notizen im „Ausland“ über Korallen in Meteoriten wurden von mir geschrieben, als ich erst einige wenige, speziell von mir gewünschte Schliffe studiert hatte. Nachdem ich nun seitdem die reiche Hahn'sche Meteoritensammlung seit Monaten zu meiner Verfügung gehabt, hatte ich nicht nur Gelegenheit, die von ihm abgebildeten, sondern auch eine größere Anzahl neuer, speziell für den Zoologen noch weit beweisenderer Stücke zu finden. 
 
 ...
