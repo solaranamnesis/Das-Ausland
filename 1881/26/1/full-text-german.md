@@ -22,6 +22,10 @@ Nun einige Punkte:
 
 4) Ein großes Mifzverftändnis wäre die Annahme, die mir kürzlich in einem Briefe eines bedeutenden Schriftftellers entgegentrat und die vielleicht auch Anderen, welche die Zusammensetzung der Chondritmeteoriten nicht kennen, sich nahe gelegt haben möchte, daß nämlich jene organischen Formen Reste niederer Tiere sein könnten, die außen auf der Oberfläche jener Meteoriten während ihres Laufes durch den Weltraum enstsanden wären. Dies ist natürlich durchaus nicht der Fall. Jene Gebilde find vielmehr Einschlüsse in den Meteoriten. Es find Petrefakten, nichts anderes und die Chondritmeteoriten selber erscheinen uns bis jetzt in der That lediglich als Petrefaktenführende Felstrümmer eines fremden Weltkörpers, aber wahrlich als solche interessant genug. -
 
+Herrn Rzehak aus Brünn aber ersuchen wir freundlichst, ehe er sich weiter in der Sache vernehmen läßt, entweder um gütige Einsichtnahme unserer Schliffe selbst oder aber - um geduldiges Weiterschleifen und dann um Weitermikroskopieren, wie Hahn und Ich es Monate lang gethan. Wer weiß, er wird dann vielleicht auf die eine oder andere Art ein Verfechter der Hahn'schen Entdeckung, wie es erst vor kurzem ein wohlbekannter füddeutfcher Mineralog und Paläontolog an meinem Mikroskop geworden.
+
+***
+
 
 
 ...
