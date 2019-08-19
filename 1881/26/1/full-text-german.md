@@ -14,6 +14,6 @@ Die oben berührten Notizen im „Ausland“ über Korallen in Meteoriten wurden
 
 Nun einige Punkte:
 
-
+1) Die verschiedenen Chondritmeteoriten find sehr ungleich reich an organischen Gebilden, manche bestehen zu zwei Dritteilen oder mehr daraus. In der Regel find es kleinere oder größere Bruchstücke und meist erst, wenn man eine größere Anzahl von Schliffen durchmustert hat, findet man die Zusammengehörigkeit der verschiedenen Gebilde 
 
 ...
