@@ -132,6 +132,10 @@ Wir haben Kalamiten im Kohlengebirge und lebende, und doch find gewiß hier nach
 
 Solche Sätze, fage ich, in der Allgemeinheit, wie sie der Herr Verfaffer aufftellt, entscheiden nichts. Würden sie aber doch in dieser schrankenlofen Allgemeinheit gelten, so kann ich mit demselben Rechte den Ausführungen des Herrn Verfaffers solgenden Satz entgegenstellen:
 
-„Wenn die Chondrite, wie allgemein zugegeben, aus Enstatit und Olivin bestehen, so m“
+„Wenn die Chondrite, wie allgemein zugegeben, aus Enstatit und Olivin bestehen, so müffen, wenn sie nichts als Minerale find, unsere terrestrischen Olivine und Enstatite dieselben Strukturen zeigen, wie die meteoritischen, was bis jetzt wenigstens keineswegs zutrifft.“
+
+Es läge also hier für zwei ganz verschiedene Thatsachen (Wirkungen) ein und dieselbe Ursache vor und da dies nicht möglich ist, schließe ich, und ich glaube mit demselben oder noch befferen Recht, als der Herr Verfaffer, auf eine weitere Ursache der Bildung von solchen, welche außerhalb des Minerals liegt, welche die organische ist.
+
+
 
 ...
