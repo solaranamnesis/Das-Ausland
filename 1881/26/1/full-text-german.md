@@ -78,6 +78,8 @@ Eine Antwort auf diese schon in meinem Buche aufgestellte Frage hat Herr Rzehak 
 
 Ich habe deshalb eine Anzahl solcher mit höheren Vergrößerungen, wie Taf. IX, XV gegeben; auch habe ich im Texte noch ergänzt, was ich wenigstens durch die Photographien bei so hohen Vergrößerungen nicht mehr zeigen konnte.
 
+Was der Verfaffer gegen diese photographischen Bilder aus seiner Beobachtung gegen die Struktur der Chondriten anführt und beschreibt, ist, wie oben schon ausgeführt, ein Mineral mit einem Fragezeichen; er hält es für Feldspat. In einem Mineral (welches? weiß der Herr Verfaffer ja selbst nicht), hat er „säuligen Bau“ beobachtet. Aber wohl gemerkt, er fand erstens nicht runde Säulen, wie meine Formen find, sondern geradlinige Umrisse. Ebensogut und weit einfacher hätte er sich auf die Basaltsäulen zum Gegenbeweis berufen können.
+
 
 
 ...
