@@ -92,6 +92,10 @@ Nun wird drittens, um auch die seineren Strukturen, die „favositoiden“ Kanä
 
 Nun habe ich aber in meinem Buche gefagt und gezeigt, daß die Kanäle der Meteoriten-(Favositen) in völlig gleichen Abschnitten stehen, nicht Glas-Einschlüsse find, und will hier nachtragen, daß dieselben auch im Querdurchschnitt und zwar hier nicht als Punkte, sondern als deutliche Querkanäle vorhanden find, daß sie also nicht eingesprengte Minerale (Punkte), sondern wirklich ganz unzweifelhafte Röhrchen (Sproffenkanäle der Favositen) find. Hienach kann von runden Glas-Einschlüssen als Gegenbeweisthatsache durchaus nicht mehr die Rede sein. Noch kein Forscher, welcher meine Objekte gesehen, hat dem, was ich für Sproffenkanäle (Perforationen) erklärte, den Einwurf gemacht, daß es bloße Einschlüsse seien.
 
+Hier muß ich noch weiter gehen und auf den größten Fehler aller Kritik über fremde Beobachtungen hinweisen: er besteht darin, daß man überhaupt Beobachtungen Dritter kritisiert, ehe man das Beobachtungsobjekt des Gegners gesehen hat.
+
+Und gerade für den vorliegenden Fall mußte ich wenigstens darauf bestehen, daß die Kontrole an Schliffen von Knyahynia ausgeführt wird.
+
 
 
 ...
