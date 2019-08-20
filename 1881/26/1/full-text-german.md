@@ -74,6 +74,10 @@ Der erste Beweis, der negativ mineralogische, ist (wie ich fagte) in der Kritik 
 
 Nun möchte ich nur die eine Frage von dem Herrn Rzehak, wenn er ein Mineraloge ist, beantwortet hören: Wie ist es möglich, daß ein oder zwei Minerale, aus welchen die Chondrite nach der allgemeinen Annahme bestehen, Minerale aus demselben Steine (von etwa fünf Zentner), also unter den gleichen Verhältnissen entstanden und gebildet, alle die Hundert Strukturformen zeigen, welche ich in meinem Werke abgebildet habe? Und diese Strukturen könnten jetzt um 25 noch vermehrt werden.
 
+Eine Antwort auf diese schon in meinem Buche aufgestellte Frage hat Herr Rzehak nicht gegeben: er begnügt sich, Gümbel anzuführen, der in Eis (Hagelkörnern) ähnliche Strukturen wie in den Chondriten gefunden zu haben glaubte. - Es wäre in der That schon ein großes Wunder, wenn Eis- und Enstatit-Krystallite gleich ausfähen. Daß es scheinbar stenglige Strukturen in Eis, daß es viele stenglige Mineralaggregate giebt, ist sicher, nur besteht eben der Unterschied, daß in den Chondriten nicht bloß Bruch- (optische) Linien find, sondern wirklich substanzielle, von einem zweiten Mineral gebildete Wände; daß diese „Stengel“ nicht wirr durcheinander liegen, wie das (?) Mineral des Herrn Rzehak, sondern ganz regelmäßig aneinander geordnet find, und zwar excentrisch und nicht koncentrisch, und daß ferner ein Teil nicht eine Kugel, sondern einen platten Fächer von Röhren bildet. Der Kernpunkt meiner Beweisführung, der Schlüffel meiner Stellung, find aber die regelmäßigen Strukturen im großen und kleinen, die Regelmäßigkeit derselben, welche die Annahme eines Naturspiels absolut ausschließt.
+
+Ich habe deshalb eine Anzahl solcher mit höheren Vergrößerungen, wie Taf. IX, XV gegeben; auch habe ich im Texte noch ergänzt, was ich wenigstens durch die Photographien bei so hohen Vergrößerungen nicht mehr zeigen konnte.
+
 
 
 ...
