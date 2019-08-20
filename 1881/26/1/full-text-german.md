@@ -102,6 +102,10 @@ Nun kommt der Herr Verfaffer zum Schluß viertens an die Erklärung der Quersche
 
 Das ist mir wohlbekannt. Ich habe aber in meinem Buche diesen Einwand sowohl, was die Erklärung der Röhren, Lamellen aus Blätterbrüchen, als was die Erklärung der Querscheidewände aus Quersprüngen betrifft, erörtert, und darauf hingewiesen, daß beide, Blätterbruch und Quersprünge, bloß optische Erscheinungen seien, während die Zellenscheidewände der Organismen und gerade die Querscheidewände in meinen Formen aus besonderen Substanzen aufgebaut find. Ich habe deshalb, um das Bild von bloßen Brüchen und Scheidewänden zu zeigen, einen terrestrischen Enstatit (Texas), der bloß Mineral ist, abgebildet, wo diese Brüche als schwarze Linien hervortreten.
 
+Nun stimmt aber der Enstatit aus dem Meteorstein von Bishopsville, welcher ebenfalls reines Enstatitmineral ist, in seinem Bilde mit dem von Texas Taf. I, Fig. 2 (also ein meteoritischer Enstatit mit einem terrestrischen Enstatit) so vollkommen überein, daß sich beide Bilder nicht unterscheiden laffen. Hat der meteoritische Enstatit, wo er bloß als Mineral austritt, dieselbe Struktur, wie der terrestrische - so solgt daraus auch, daß, wenn in dem meteoritischen Minerale ganz andere Strukturen auftreten, letztere eine besondere (nicht ind dem Mineral gelegene) Ursache haben müffen.
+
+Hier muß ich noch eine freilich längst bekannte Thatsache anführen.
+
 
 
 ...
