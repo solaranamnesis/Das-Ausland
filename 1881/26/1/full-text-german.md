@@ -96,6 +96,10 @@ Hier muß ich noch weiter gehen und auf den größten Fehler aller Kritik über 
 
 Und gerade für den vorliegenden Fall mußte ich wenigstens darauf bestehen, daß die Kontrole an Schliffen von Knyahynia ausgeführt wird.
 
+Ich kann den Herrn Verfaffer versichern, daß ich schon Hunderte und Taufende von Glas-Einschlüssen gesehen habe, aber kein Gestein hat nur entfernt das gezeigt, was ich in den Chondriten beobachtet habe. Hier find es bei einer Vergrößerung von 1000 nicht etwa Magnetitkörner, wie sie auch in den Meteoritgesteinen häufig vorkommen, nicht beliebig geformte Glas-Einschlüsse, sondern kreisrunde, zuweilen elliptische geformte Flächen mit einer Wand, wenigstens mit einer dunkler gefärbten Masse zwischen dem Kreis und dessen Umgebung; ferner liegt dieser Kreis häufig sogar in einer Vertiefung (was man schon auf Taf. XV angedeutet sieht): die „Perforationen“ finden sich nur in Röhren und schließlich ist die Wand der Zollwände noch seitlich durchbohrt von den Kanälen, welche symmetrisch und in gleichen Abständen zu denjenigen stehen, welche man im Querdurchschnitt als Punkte sieht. Diese Seitendurchschnitte find in der Form Taf. VIII bei 300-facher Vergrößerung schon ganz deutlich. Das ist denn doch etwas anderes als eine Einstreuung oder ein Einschluß.
+
+Nun kommt der Herr Verfaffer zum Schluß viertens an die Erklärung der Querscheidewände. Auch hier ist seine Kritik nicht minder unzutreffend. Er beruft sich darauf, daß die Enstatitkrystalle Querbrüche zeigen.
+
 
 
 ...
