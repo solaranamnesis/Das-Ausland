@@ -2,6 +2,8 @@
 
 ## Von Dr. D. F. Weinland
 
+(Includes editorial letter from Hahn)
+
 Attempt at a translation from the original Fraktur German, I welcome all pull requests of submitted translations and/or edits.
 
 English - Plain Text  
