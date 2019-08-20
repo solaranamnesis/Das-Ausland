@@ -52,5 +52,15 @@ Wenn sich Herr Rzehak auf das Urteil der _Comptes rendus_ beruft, so muß ich be
 
 Herr Daubrée hat in seinem Buche „Experimentalgeologie“ S. 386 den Meteorstein von Knyahynia abgebildet, freilich sehr wenig genau. Daß die Einschlüsse Strukturen haben, hat er übersehen, aus dem einfachen Grunde, weil alle seine Untersuchungen mit Pulvern und Schmelzen der Steine anfingen.
 
+Auch die Akademie von 1800 hatte noch Hunderte von „Arguments physiques et moraux“ gegen den kosmischen Ursprung der Meteorite, eine Ansicht, welche, wenn sie heute wiederholt würde, auch keinen anderen Erfolg, als den des Gelächters hätte.
+
+Herr Rzehak aber hat „Arguments physiques et moraux“ gegen meine Arbeit, welche ich nun des Näheren erörtern will.
+
+Er bestreitet vor allem meine Definition des organischen Wefens, indem er zwei Merkmale meines Begriffs, nämlich: „geschlossene Form“ und „wiederkehrende Form“ für sich allein nicht hinreichen läßt, um den Beweis des Vorhandenseins eines Organismus zu führen. Da ich aber fünf zusammengehörige Merkmale für den Beweis eines organischen Wesens sordere, so habe ich selbst diese beiden Merkmale allein für unzureichend zum Beweis erklärt: als Argument gegen mich ist dieser Einwurf also kein ehrlicher.
+
+Mit den Einwürfen 3, 4 und 5 will der Verfaffer der Kritik die Struktur der Chondrite aus der der Minerale erklären, wobei er sich gelegentlich auf Gümbel berust.
+
+
+
 
 ...
