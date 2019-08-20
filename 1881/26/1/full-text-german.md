@@ -60,6 +60,10 @@ Er bestreitet vor allem meine Definition des organischen Wefens, indem er zwei M
 
 Mit den Einwürfen 3, 4 und 5 will der Verfaffer der Kritik die Struktur der Chondrite aus der der Minerale erklären, wobei er sich gelegentlich auf Gümbel berust.
 
+Auf die einzelnen Beweise, sowohl den negativen, daß man es nicht mit Mineralbildungen, als auf den positiven, daß man es mit wirklichen Organismen zu thun habe, findet es Herr Rzehak einzugehen nicht nötig: auch meine 32 photographischen Tafeln existieren für ihn nicht. Daß diese denn doch für sich schon ihre Bedeutung haben, dafür berufe ich mich auf das Urteil der ersten Autorität auf dem Gebiete der Mineralstruktur, welches solgendermaßen lautet: „Mag auch die Deutung sein, welche sie will, jedenfalls muß Ihr Buch als ein ausgezeichnetes Prachtwerk über die Meteoritenstruktur gelten, dessen Tafeln für Jedermann von dem größten wissenschaftlichen Nutzen find.“
+
+Was ist aber das Beweismaterial des Herrn Rzehal? Ein (!) Mineral, das er nicht einmal zu bestimmen vermag - ein Beweis, daß entweder das Mineral ganz unsicher und daher kein Beweismaterial, oder Herr Rzehak kein Mineraloge ist. Für letzteres spricht, daß ihm sein (?) Mineral als Unikum erscheint, während allerdings bei Feldspat eine Art Höhlung (in Folge der Zerstezung) eine ganz gewöhnliche Erscheinung ist. Es hätte hier dieses dunkeln Krystalls gar nicht bedurft, Herr Rzehak hätte sich geradezu und kurzweg auf diese Thatsache berufen können, nur freilich würde ich ihn dann auch auf den Unterschied zwischen Mineral und Organismus hingewiesen haben. Von diesem (?) Mineral giebt Herr Rzehak keine Abbildung, so daß sich die Lefer ein Bild davon machen, daß sie selbst urteilen können.
+
 
 
 
