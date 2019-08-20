@@ -106,6 +106,6 @@ Nun stimmt aber der Enstatit aus dem Meteorstein von Bishopsville, welcher ebenf
 
 Hier muß ich noch eine freilich längst bekannte Thatsache anführen.
 
-
+Wo ein Organismus „versteinert“ wird, tritt ein Mineral an die Stelle der organischen Stoffe. Es mag etwas von der ursprünglichen Substanz zurückbleiben, wie z. B. die Kieselgerüste der Schwämme. Doch das kommt hier nicht in Betracht. Gewöhnlich wird die ganze Substanz umgeformt, jedenfalls Hohlräume wieder ausgefüllt. Das umwandelnde Mineral ist Mineral und bleibt es, hat als soches seine Eigenschaften, sie können sich in der Art an die Stelle des ursprünglichen Organismus drängen, daß nur dessen äußerste Umrisse erhalten bleiben, während die ganze Form mit dem Mineral ausgefüllt ist. Dort liegt also nun z. B. Kalkspat mit seinen drei Blätterbrüchen, an der Stelle des ursprünglichen Cidaritenstachels in der Form desselben, wie ihn Quenstedt, „Epochen der Natur“, S. 558 zeigt. Dieser Cidaritenstachel ist seiner Substanz nach reiner Kalkspat und zeigt an seiner Oberfläche nur eine etwas dunkler gefärbte Substanz, jedoch ganz vollkommen erhaltene Umrisse, 
 
 ...
