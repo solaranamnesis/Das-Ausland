@@ -110,6 +110,15 @@ Wo ein Organismus „versteinert“ wird, tritt ein Mineral an die Stelle der or
 
 Nun ich hoffe von der deutschen Wissenschaft, daß sie sich durch solche Gründe von der wirklich gründlichen Prüfung, welche die Sache nach meiner bisherigen Arbeit doch sicher verdient, nicht abschrecken laffen wird. Es ist wahrhaftig viel geringeren Objekten in der Mikrogeologie und Mineralogie so viel Ehre angethan und Mühe zugewendet worden: ja man darf fagen, bis zur Gedankenlofigkeit oder wenigstens soweit, daß sich über die Beobachtungen selbst nichts mehr denken ließ. In den Meteoriten und speziell Chondriten aber ist uns das Gestein erhalten, welches über die Planetenbildung und daher auch über die Bildung unserer Erde den einzig sicheren Auffchluß giebt. Daß ihre Untersuchung eine höchst notdürstige war, das zeigt schon die Vergleichung des bisher Veröffentlichten mit meinen Tafeln.
 
+Der äußere Grund liegt wohl in der Seltenheit, der Koftbarkeit des Materials. Doch die Sparsamkeit in der Wissenschaft hat ihre Grenzen; läßt man die Meteoriten, so wie sie heute in den Sammlungen liegen, so find sie ein toter Schatz. Auch ist nicht zu fürchten, daß sie ausgehen; es fallen immer wieder.
+
+Ist nun auch allerdings jeder Fall ein Unikum, so ist sein Wert eben doch auch wieder ein relativer, ein Wert nur, wenn man weiß, was man hat. Man opfere nur, wie ich es aus privaten Mitteln gethan habe, etwas, und die Sache wird bald entschieden sein, wer recht hat, ich, der gesehen hat, oder Herr Rzehak, der nichts gesehen hat.
+
+Die Entgegnungen auf die zoologischen Einwürfe überlaffe ich meinem Freunde Dr. Weinland.
+
+Ich erlaube mir aber nur einen Satz des Herrn Rzehak herauszuziehen.
+
+„Undeutliche Gewirre kleiner Krystallleistchen hält Herr Dr. Hahn für Nadelgerüste von Spongien.“
 
 
 ...
