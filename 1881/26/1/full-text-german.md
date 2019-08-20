@@ -64,6 +64,15 @@ Auf die einzelnen Beweise, sowohl den negativen, daß man es nicht mit Mineralbi
 
 Was ist aber das Beweismaterial des Herrn Rzehal? Ein (!) Mineral, das er nicht einmal zu bestimmen vermag - ein Beweis, daß entweder das Mineral ganz unsicher und daher kein Beweismaterial, oder Herr Rzehak kein Mineraloge ist. Für letzteres spricht, daß ihm sein (?) Mineral als Unikum erscheint, während allerdings bei Feldspat eine Art Höhlung (in Folge der Zerstezung) eine ganz gewöhnliche Erscheinung ist. Es hätte hier dieses dunkeln Krystalls gar nicht bedurft, Herr Rzehak hätte sich geradezu und kurzweg auf diese Thatsache berufen können, nur freilich würde ich ihn dann auch auf den Unterschied zwischen Mineral und Organismus hingewiesen haben. Von diesem (?) Mineral giebt Herr Rzehak keine Abbildung, so daß sich die Lefer ein Bild davon machen, daß sie selbst urteilen können.
 
+Von dem Allem ist keine Rede. Man schließt _a priori_, wo Thatsachen vorliegen, man berust sich auf Minerale, welche niemand sehen und vergleichen kann, und macht sich luftig über Dinge, welche man offenbar nicht kennt.
+
+Wenn ich Herrn Rzehak ein Urteil in der Sache zugestehen wollte, müßte er mich versichern können, daß er mein Material kennt oder ebensoviel Material wenigstens gefehen hat, als ich. Doch zur Sache!
+
+Mein Beweis ist zunächst ein negativer, d. h. der Beweis, daß eine Mineralstruktur nicht vorliegt: und dann ein positiver, daß die Formen der Meteorite nach Analogie anerkannter Organismen dies auch find.
+
+Der erste Beweis, der negativ mineralogische, ist (wie ich fagte) in der Kritik ganz übergangen. Ich hätte vor allem eine Widerlegung dieses Teils erwartet, weil dieser jedermann zugänglich ist. Ich kann mich hier auf mein Buch der Meteorite (Chondrite) S. 20 f. berufen, und bitte dort nachzulefen.
+
+Nun möchte ich nur die eine Frage von dem Herrn Rzehak, wenn er ein Mineraloge ist, beantwortet hören: Wie ist es möglich, daß ein oder zwei Minerale, aus welchen die Chondrite nach der allgemeinen Annahme bestehen, Minerale aus demselben Steine (von etwa fünf Zentner), also unter den gleichen Verhältnissen entstanden und gebildet, alle die Hundert Strukturformen zeigen, welche ich in meinem Werke abgebildet habe? Und diese Strukturen könnten jetzt um 25 noch vermehrt werden.
 
 
 
