@@ -136,6 +136,12 @@ Solche Sätze, fage ich, in der Allgemeinheit, wie sie der Herr Verfaffer auffte
 
 Es läge also hier für zwei ganz verschiedene Thatsachen (Wirkungen) ein und dieselbe Ursache vor und da dies nicht möglich ist, schließe ich, und ich glaube mit demselben oder noch befferen Recht, als der Herr Verfaffer, auf eine weitere Ursache der Bildung von solchen, welche außerhalb des Minerals liegt, welche die organische ist.
 
+Was die allgemeinen Sätze über die Art der Schöpfung und insbesondere der Meteoritenschöpfung betrifft, so find diese erft zu erörtern, wenn die Vorfrage ob Organismen ? entschieden ist. Diese läßt sich aber nicht mit einem ? Krystall entscheiden, wenigstens kann dieser ?  Krystall, welchen überdies kein Dritter sehen, also sich auch nicht entscheiden kann, ob er auch das wirklich zeigt, was der Herr Verfaffer von ihm fagt, etwas gegen meine photographischen Thatsachen beweisen. Zieht man aber diesen ? Krystall und zwar mit Recht von der Rechnung des Herrn Verfaffers ab, so bleibt von seiner ganzen Ausführung nichts übrig, als allgemeine Sätze, deren Anwendbarkeit sehr fraglich ist, weil wir eben über die  „Vorausfetzungen“ welche wir gleich nennen, sehr im Unklaren find.
+
+Ich kann gegen dis Ausführungen des Herrn Verfaffers mich kurz auf die besten Bearbeitungen der Krystalliten von Vogelfang, herausgegeben von Zirkel (Bonn 1875) berufen. Dieser gründliche Forscher hat merkwürdige Formen abgebildet, welche man mit den meteoritischen vergleichen könnte, wenn, was er ausdrücklich hervorhebt, eine einzige da wäre, welche Struktur zeigte.
+
+Eine solche ist nicht da. Dadurch unterscheiden sich Krystalliten von Organismen.
+
 
 
 ...
