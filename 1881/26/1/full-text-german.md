@@ -80,6 +80,12 @@ Ich habe deshalb eine Anzahl solcher mit höheren Vergrößerungen, wie Taf. IX,
 
 Was der Verfaffer gegen diese photographischen Bilder aus seiner Beobachtung gegen die Struktur der Chondriten anführt und beschreibt, ist, wie oben schon ausgeführt, ein Mineral mit einem Fragezeichen; er hält es für Feldspat. In einem Mineral (welches? weiß der Herr Verfaffer ja selbst nicht), hat er „säuligen Bau“ beobachtet. Aber wohl gemerkt, er fand erstens nicht runde Säulen, wie meine Formen find, sondern geradlinige Umrisse. Ebensogut und weit einfacher hätte er sich auf die Basaltsäulen zum Gegenbeweis berufen können.
 
+Die Thatsache, daß meine Strukturen runde Röhren find, wird entweder von Herrn Rzehak übersehen oder verschwiegen, und beides wäre notwendig, letzteres doppelt notwendig zu fagen gewesen, weil mein Buch, wie der Herr Verfaffer selbst fagt, nur in wenigen Händen ist, seine Kritik aber in viele Hände kommt. Also Röhren!
+
+Zur Widerlegung meiner Ansicht hätte gehört, daß er in seinem (?) Mineral Röhrenstruktur nachgewiesen hätte. Daß es Krystall-Aggregate, Krystalle mit geradlinigen Umrissen giebt, dazu bedarf es keines Minerals mit einem Fragezeichen: das weiß jedermann, selbst der Laie. Daß es aber Minerale (und nicht Aggregate) giebt, welche ganz aus runden Röhren bestehen, das habe ich weder gehört, noch gelesen, noch gesehen.
+
+Ein bloßes Mineral hat überhaupt keine Struktur, es kann sich bloß in Folge von mechanischer Gewalt oder chemischer Zersetzung eine Art Struktur nachbilden, aus welcher rückwärts auf das ursprüngliche Mineral geschlossen wird. Also die Beobachtung an dem Feldspat in Frage trifft hier überhaupt nicht zu.
+
 
 
 ...
