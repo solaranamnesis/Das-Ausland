@@ -130,6 +130,8 @@ Hier entscheidet in erster Linie die Thatsache und wenn diese da ist, muß das G
 
 Wir haben Kalamiten im Kohlengebirge und lebende, und doch find gewiß hier nach geologischen Begriffen wenigstens nicht dieselben Voraussetzungen vorhanden, aber dieselbe Sache nur in anderem Maßstab. Aber die Formen der Meteoriten find auch nur in ihrer allgemeinen Anordnung den terrestrischen gleich. Im großen Verhältnis z. B. unterscheidet sie sich sehr wesentlich: und das mag nun eben auf verschiedenen Vorausfetzungen (Ursachen) ausgelegt werden. Dann haben wir die Ursache der Uebereinstimmung, sowie der Unterscheidung.
 
+Solche Sätze, fage ich, in der Allgemeinheit, wie sie der Herr Verfaffer aufftellt, entscheiden nichts. Würden sie aber doch in dieser schrankenlofen Allgemeinheit gelten, so kann ich mit demselben Rechte den Ausführungen des Herrn Verfaffers solgenden Satz entgegenstellen:
 
+„Wenn die Chondrite, wie allgemein zugegeben, aus Enstatit und Olivin bestehen, so m“
 
 ...
