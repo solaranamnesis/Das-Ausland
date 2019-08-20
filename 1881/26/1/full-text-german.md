@@ -120,5 +120,10 @@ Ich erlaube mir aber nur einen Satz des Herrn Rzehak herauszuziehen.
 
 „Undeutliche Gewirre kleiner Krystallleistchen hält Herr Dr. Hahn für Nadelgerüste von Spongien.“
 
+Darunter versteht der Herr Verfaffer wohl die Abbildungen Taf. VII meines Werkes. Gerade durch diese wurde ein Zoologe von bestem Namen überzeugt - denn was Herr Rzehak in meinen Abbildungen nur als Nädelchen sieht, hat noch eine Struktur und zwar eine sehr gute.
+
+Jede Nadel hat einen scharf gefchnittenen Hohlraum wie die Spongiennadeln. Ich fetzte diese Form unter die Abbildungen in der gewiß berechtigten Vorausfetzung, daß sie von anderen Forfchern, besonders von solchen, welche eine Kritik schreiben wollen (falls sie nicht die Objekte sehen wollen), im Gestein aufgefucht würden.
+
+
 
 ...
