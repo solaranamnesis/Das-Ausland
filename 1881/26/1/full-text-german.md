@@ -86,6 +86,8 @@ Zur Widerlegung meiner Ansicht hätte gehört, daß er in seinem (?) Mineral Rö
 
 Ein bloßes Mineral hat überhaupt keine Struktur, es kann sich bloß in Folge von mechanischer Gewalt oder chemischer Zersetzung eine Art Struktur nachbilden, aus welcher rückwärts auf das ursprüngliche Mineral geschlossen wird. Also die Beobachtung an dem Feldspat in Frage trifft hier überhaupt nicht zu.
 
+Was die Krystallsäulen von den runden Röhren der Chondrite unterscheidet, habe ich in meinem Buche angeführt: es find Substanzen, welche die Röhrenwände bilden und dabei eine Füllmasse, also zwei Minerale, welche die Röhren ausmachen, während die Krystallsäulen nur aus Einem Mineral bestehen und nur durch Sprünge (also optische Linien) sichtbar werden. Weiteres find diese „Säulen“, wie Herr Rzehak zugiebt, nicht radial angeordnet, wie die der Chondrite, sondern wirr, und es bedurste nur eines Blickes in das Polarisations-Mikroskop, um den Unterschied beider Bildungen fofort im vollen Lichte zu zeigen. Ueberdies kommen, wie ich oben anführte, fächerartig gelagerte Röhren vor: und zwar bloß aus einer Reihe Röhren gebildet, die streng (ex-)centrisch aneinander gelagert find. Freilich ist es eine leichte Sache, mit solchen Objekten und solchen Thatsachen, wie Herr Rzehak, zu „beweisen“, mit Objekten, wobei man sicher ist, daß der Lefer weder das eine Objekt des Angegriffenen noch das des Angreifers zu Gesicht bekommt; solche Dinge liest sogar der Fachmann in gutem Glauben vor, und übersieht leicht die Unterschiede, weil er auch nicht einmal das Buch des Gegners vor sich hat. Eine solche Beweisführung ist entweder unverzeihlich oberflächlich - oder - (wenn wissentlich) eine unehrliche.
+
 
 
 ...
