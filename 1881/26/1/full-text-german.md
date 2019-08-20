@@ -100,6 +100,8 @@ Ich kann den Herrn Verfaffer versichern, daß ich schon Hunderte und Taufende vo
 
 Nun kommt der Herr Verfaffer zum Schluß viertens an die Erklärung der Querscheidewände. Auch hier ist seine Kritik nicht minder unzutreffend. Er beruft sich darauf, daß die Enstatitkrystalle Querbrüche zeigen.
 
+Das ist mir wohlbekannt. Ich habe aber in meinem Buche diesen Einwand sowohl, was die Erklärung der Röhren, Lamellen aus Blätterbrüchen, als was die Erklärung der Querscheidewände aus Quersprüngen betrifft, erörtert, und darauf hingewiesen, daß beide, Blätterbruch und Quersprünge, bloß optische Erscheinungen seien, während die Zellenscheidewände der Organismen und gerade die Querscheidewände in meinen Formen aus besonderen Substanzen aufgebaut find. Ich habe deshalb, um das Bild von bloßen Brüchen und Scheidewänden zu zeigen, einen terrestrischen Enstatit (Texas), der bloß Mineral ist, abgebildet, wo diese Brüche als schwarze Linien hervortreten.
+
 
 
 ...
