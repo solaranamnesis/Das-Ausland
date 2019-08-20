@@ -142,6 +142,10 @@ Ich kann gegen dis Ausführungen des Herrn Verfaffers mich kurz auf die besten B
 
 Eine solche ist nicht da. Dadurch unterscheiden sich Krystalliten von Organismen.
 
+Was der Herr Verfaffer etwa für sich anführen könnte, wäre die Abbildung Vogelfangs in deffen Philosophie der Geologie Taf. V, Mikrolithen-Konkretionen in gewöhnlichem grünen Glase.
+
+Allein die großen und gerade erheblichsten Unterschiede treten auch fofort hervor - keine Wände - regellos gelagerte Einschlüsse. - Man nehme auch das Polarisationsmikroskop dazu, und niemand wird meine Korallen Taf. VIII, IX, XI, Fig. 1 mit irgend einem stengligen Mineral-Aggregat in Zusammenhang bringen.
+
 
 
 ...
