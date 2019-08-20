@@ -124,6 +124,12 @@ Darunter versteht der Herr Verfaffer wohl die Abbildungen Taf. VII meines Werkes
 
 Jede Nadel hat einen scharf gefchnittenen Hohlraum wie die Spongiennadeln. Ich fetzte diese Form unter die Abbildungen in der gewiß berechtigten Vorausfetzung, daß sie von anderen Forfchern, besonders von solchen, welche eine Kritik schreiben wollen (falls sie nicht die Objekte sehen wollen), im Gestein aufgefucht würden.
 
+Die Schlußfolgerung, daß die Formen, wenn sie wirklich unsern terrestrischen Organismen gleich sein follen, unter gleichen Vorausfetzungen sich aufgebaut haben müßten, was augenfcheinlich nicht der Fall sei, ist eben eine viel zu allgemeine Hypothese.
+
+Hier entscheidet in erster Linie die Thatsache und wenn diese da ist, muß das Gefetz eingeschränkt werden. Doch ist auch der Satz des Herrn Verfaffers selbst unrichtig. Was heißt in der Natur „gleiche Voraussetzung“?
+
+Wir haben Kalamiten im Kohlengebirge und lebende, und doch find gewiß hier nach geologischen Begriffen wenigstens nicht dieselben Voraussetzungen vorhanden, aber dieselbe Sache nur in anderem Maßstab. Aber die Formen der Meteoriten find auch nur in ihrer allgemeinen Anordnung den terrestrischen gleich. Im großen Verhältnis z. B. unterscheidet sie sich sehr wesentlich: und das mag nun eben auf verschiedenen Vorausfetzungen (Ursachen) ausgelegt werden. Dann haben wir die Ursache der Uebereinstimmung, sowie der Unterscheidung.
+
 
 
 ...
