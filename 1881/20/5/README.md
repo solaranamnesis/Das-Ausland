@@ -1,4 +1,4 @@
-# Ueber die „Organismen der Meteorite“.
+# Über die „Organismen der Meteorite“.
 
 ## Von Anton Rzehak
 
