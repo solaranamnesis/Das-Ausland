@@ -13,3 +13,7 @@ In the meteorites, especially in that class called the chondrites because of the
 The author did not let in any detailed zoological interpretation of the forms and their comparison with terrestrial ones.
 
 A large number of these pictures have certainly surprised every zoologist and paleontologist. An eye trained for coral structures will immediately be reminded of well-known coral structures in the pictures of Table 1 Figures 5 and 6, Table 8, and Table 15. Even if only a single one of these forms were safely proven to be organic, the spell would be broken, and one would then be confident in approaching the organic interpretation of the remaining.
+
+Regarding the most striking of the above-mentioned forms, most of which are from the famous colossal meteorite of Knyahinya in Hungary (June 9, 1866), let us say a few words.
+
+At our request, Dr. Hahn has provided the original material itself, including an extremely valuable unique piece, for further investigation and we had full leisure to study these strange pieces with the help of our own rather rich coral collection. The result of this study is the full conviction that, at least in these structures, we are really dealing with the remnants of corals, most of which belong to the Favosites, a family that has so far only been found as a fossil in the Palaeolithic, the oldest layers of Earth.
