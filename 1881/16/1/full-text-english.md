@@ -2,7 +2,7 @@
 
 ## by Dr. D. Fr. Weinland
 
-The question of whether or not other celestial bodies besides our Earth are inhabited or were inhabited by living beings is certainly one of the most interesting that exists for the thinking human being and could, in all probability, already be affirmed. The quite analogous physical conditions, as demonstrated by some of the other planets in our Solar System, and as they probably represent the countless planets of other star systems, suggests with some certainty that not on our Earth alone has a higher organic process of development taken place. But this has always only been an analogy, a hypothesis, however well supported.
+The question of whether or not other celestial bodies besides our Earth are inhabited or were inhabited by living beings is certainly one of the most interesting that exists for the thinking human being and could, in all probability, already be affirmed. The quite analogous physical conditions, as demonstrated by some of the other planets in our Solar System, and, as they probably represent the countless planets of other star systems, suggests with some certainty that not on Earth alone has higher organic processes of development taken place. But this has always only been an analogy, a hypothesis, however well supported.
 
 But it seems we have now received a very direct answer to this question and that we can see the real remnants of living beings from another celestial body with our own eyes.
 
