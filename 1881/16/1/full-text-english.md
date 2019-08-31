@@ -24,6 +24,5 @@ Such polyparies, i.e. tube bundles quite Favosites-like, occur in a large number
 
 Unfortunately, most of the cuts go parallel to the tube position of the polyparies, which is due to the fact that Hahn, in order to obtain his cuts, broke up the meteorite masses where the splitting was easiest in accordance with the length of the polyp colony.
 
-
-
+Only a single, wonderfully nice cut, the aforementioned unique one from Knyahinya, grants a full view from above through the cup of the polypary and at their stringing together. This preparation alone is certainly conclusive for every coral connoisseur. Unfortunately, the photographic image given by Hahn in his work, Table 10 Figures 3 and 4, does not give the clearest picture, as the object is clearly revealed under a good microscope, since the yellowish coloring of the preparation bothered the photography.
 
