@@ -34,7 +34,6 @@ However, there remains a very strange fact about these extraterrestrial coral fo
 
 One might still ask how is it possible, that with such a large number of meteorites lying in mineralogical collections and the not insignificant number of researchers dealing with them, that these strange organic formations have only now been discovered. Different circumstances may explain the matter. One, all the meteorites are rare finds and dear pieces, which one does not like to sacrifice, therefore in general only a small amount of thin sections were made, so that the probability of getting more than just a worthless object was not great. Hahn has produced no less than 600 cuts with truly extraordinary sacrifices in time and money. Also, the above-mentioned meteorites were usually only examined with a magnifying glass, rarely with strong microscopes, and always only a few cuts.
 
+Nevertheless, individual observers, especially Director Gümbel in his description of the meteorites of Eichstädt and Schöneberg, probably had such organic forms before them. He describes very well and in detail the columnar fibers, yes, he even speaks of irregularly angular, tiny heaps that arise in cross-sections through those fibers. Here he probably had small Favosites-like corals in front of him, but he was not thinking of any organisms. But Gümbel says, as if anticipating the discussion, of the meteorite of Kaba: "Perhaps it will still be possible to prove the presence of organic beings on extraterrestrial bodies."
+
 ...
-
-
-
