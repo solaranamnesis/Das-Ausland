@@ -21,3 +21,9 @@ At our request Dr. Hahn has provided the original material itself, including an 
 The terrestrial polyp colonies of the Favosites are composed of parallel adjacent polyp tubes. From above, where the calyx leads and the living polyps sit, the coral colonies of the Favosites show a more or less regular network consisting of the walls of the individual polyps. Moreover, especially characteristic of the Favosites, there are found transverse dividing walls in the polyp tubes and fairly regular strings of holes in the wall that serve to establish the vascular connection of the polyp tubes with each other.
 
 Such polyparies, i.e. tube bundles quite Favosites-like, occur in a large number of Dr. Hahn's meteorite cuts, which come from various meteorite falls. With full clarity one sees in many of these precisely the same transverse dividing walls with little strings of holes at certain distances from each other, and so often that it is absolutely impossible to think of coincidence here, as if any mineralogist could interpret these little pattern relations, transverse dividing walls, and holes, which are seen at a magnification of two hundred times and could be easily traced up to four hundred eighty times, mineralogically. We are certainly dealing with organic structures, specifically with Favosites-like corals.
+
+Unfortunately, most of the cuts go parallel to the tube position of the polyparies, which is due to the fact that Hahn, in order to obtain his cuts, broke up the meteorite masses where the splitting was easiest in accordance with the length of the polyp colony.
+
+
+
+
