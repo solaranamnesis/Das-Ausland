@@ -38,6 +38,10 @@ Nevertheless, individual observers, especially Director Gümbel in his descripti
 
 We believe, in accordance with the above, that our tireless compatriot Dr. Hahn has succeeded. If Gümbel had been hit by a chance piece like the above-mentioned unique one, of which there may still be many more in the center of the Knyahinya meteorite mass, he would surely have become the discoverer of this extraordinary fact.
 
+About the sponges and crinoids of Hahn's, perhaps another time!
+
+***
+
 ...
 
 
