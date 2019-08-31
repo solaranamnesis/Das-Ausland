@@ -26,3 +26,6 @@ Unfortunately, most of the cuts go parallel to the tube position of the polypari
 
 Only a single, wonderfully nice cut, the aforementioned unique one from Knyahinya, grants a full view from above through the cup of the polypary and at their stringing together. This preparation alone is certainly conclusive for every coral connoisseur. Unfortunately, the photographic image given by Hahn in his work, Table 10 Figures 3 and 4, does not give the clearest picture, as the object is clearly revealed under a good microscope, since the yellowish coloring of the preparation bothered the photography.
 
+This object appears to be a complete small, rounded coral colony, which has a broad base on another coral-like structure. The whole network of calyxes is very clear. 
+
+...
