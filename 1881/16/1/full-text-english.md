@@ -36,4 +36,9 @@ One might still ask how is it possible, that with such a large number of meteori
 
 Nevertheless, individual observers, especially Director Gümbel in his description of the meteorites of Eichstädt and Schöneberg, probably had such organic forms before them. He describes very well and in detail the columnar fibers, yes, he even speaks of irregularly angular, tiny heaps that arise in cross-sections through those fibers. Here he probably had small Favosites-like corals in front of him, but he was not thinking of any organisms. But Gümbel says, as if anticipating the discussion, of the meteorite of Kaba: "Perhaps it will still be possible to prove the presence of organic beings on extraterrestrial bodies."
 
+We believe, in accordance with the above, that our tireless compatriot Dr. Hahn has succeeded. If Gümbel had been hit by a chance piece like the above-mentioned unique one, of which there may still be many more in the center of the Knyahinya meteorite mass, he would surely have become the discoverer of this extraordinary fact.
+
 ...
+
+
+
