@@ -32,6 +32,9 @@ All the coral formations in the meteorites are silicified. Magnesium silicates a
 
 However, there remains a very strange fact about these extraterrestrial coral formations. That is there extraordinary smallness. It is truely a Lilliput animal world with respect to the earthly. The coral colony we have just mentioned, which we will describe and depict in more detail at another time (in honour of the discoverer under the name _Hahnia meteoritica_), is a white dot in the meteorite cut that that is just visible to a good eye. Its largest diameter measures only 0.90 mm, the individual calyxes on average only 0.05 mm. This is the state of affairs, we know of no such earthly polyp colony, as even calyxes of 1 mm diameter are called very small. But we must be prepared for quite different things in these extraterrestrial organisms. There can easily be forms that we cannot place into our system of zoology, indeed, we are astonished that we can, in these coral formations before us, make such close comparisons with earthly ones. This testifies to extraordinarily similar organic evolution in general or on that planet from which these meteorites originate. 
 
+One might still ask how is it possible, that with such a large number of meteorites lying in mineralogical collections and the not insignificant number of researchers dealing with them, that these strange organic formations have only now been discovered. Different circumstances may explain the matter. One, all the meteorites are rare finds and dear pieces, which one does not like to sacrifice, therefore in general only a small amount of thin sections were made, so that the probability of getting more than just a worthless object was not great. Hahn has produced no less than 600 cuts with truly extraordinary sacrifices in time and money. Also, the above-mentioned meteorites were usually only examined with a magnifying glass, rarely with strong microscopes, and always only a few cuts.
+
 ...
+
 
 
