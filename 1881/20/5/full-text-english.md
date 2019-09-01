@@ -16,12 +16,14 @@ On page 20 of his work, Dr. Hahn establishes the conditions in whose fulfillment
 
 1\. A closed form.  
 2\. A recurring form.  
-3\. Recurrence of the developmental stage form.  
+3\. Recurrence of form in stages of development.  
 4\. Structure (cells or vessels)  
 5\. Similarity with known forms.  
 
 As far as the "closed" form is concerned, the word "closed" is supposed to indicate a specific outline consistent with the structure. For the "organisms" of the Tieschitz meteorites I must deny a closed form in this sense.
 
-The "recurring" of the same form cannot provide an argument in assessing the organic or inorganic nature of the chondrules. Many microscopic mineral inclusions show "closed" and "recurring" forms without supposing odds and ends of organisms in them.
+The "recurring" of the same form cannot provide an argument in assessing the organic or inorganic nature of the chondrules. Many microscopic mineral inclusions show "closed" and "recurring" forms without supposing the odds and ends of organisms in them.
+
+Regarding the "recurrence of form in stages of development", I strongly say that there are no "stages of development" in the sense that Dr. Hahn takes, they do not exist and cannot not serve. It cannot be denied that a transitional series can be created between the structureless and the more complex forms of the chondrules; however, the resulting developmental series cannot be called a phylogenetic one (in the sense of organic science), and if Dr. Hahn lets crinoids emerge from the corals and the sponges "through the multiplication of the canals", then this is a process which is completely incompatible with what we know about the phylogeny and ontogeny of protozoa, coelenterata, and echinoderms. It is precisely the "uniform" type of meteoritic organisms, highlighted on page 33 of Hahn's work, and the fact that all the forms can be placed in a transitional series that seem to me to constitute important arguments against the organic nature of the chondrules. Which zoologist or paleontologist would see a uniform type in sponges, corals, and crinoids?
 
 ...
