@@ -10,4 +10,6 @@ The only criticism of Hahn's work that has come to my attention thus far is the 
 
 I mention here that I had the opportunity and still have the opportunity at any moment to examine several splendid specimens of organisms (3) on thin sections of the Tieschitz meteorite of Moravia (July 15, 1878) so that I am not accused of incompletely representing the "too little" photographic tables of Hahn's work.
 
+Dr. Otto Hahn describes the chondrites as a "felt of animals, a fabric whose meshes were all living beings"; Dr. Weinland recognizes in the inclusions in question, which can be referred to as "chondren" with Gümbel, likewise "undoubted animal remains". In order to give all those who have not read Hahn's work a small idea of the ambiguity of these "animal remains" right from the outset, I note here that most of the "animals" were thought to be plants not long ago by Dr. Hahn!
+
 ...
