@@ -20,4 +20,6 @@ On page 20 of his work, Dr. Hahn establishes the conditions in whose fulfillment
 4\. Structure (cells or vessels)  
 5\. Similarity with known forms.  
 
+As far as the "closed" form is concerned, the word "closed" is supposed to indicate a specific outline consistent with the structure. For the "organisms" of the Tieschitz meteorites I must deny a closed form in this sense.
+
 ...
