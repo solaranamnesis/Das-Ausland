@@ -22,4 +22,6 @@ On page 20 of his work, Dr. Hahn establishes the conditions in whose fulfillment
 
 As far as the "closed" form is concerned, the word "closed" is supposed to indicate a specific outline consistent with the structure. For the "organisms" of the Tieschitz meteorites I must deny a closed form in this sense.
 
+The "recurring" of the same form cannot provide an argument in assessing the organic or inorganic nature of the chondrules. Many microscopic mineral inclusions show "closed" and "recurring" forms without supposing odds and ends of organisms in them.
+
 ...
