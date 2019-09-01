@@ -12,7 +12,7 @@ Ich erwähne gleich hier, dass ich Gelegenheit hatte und auch jetzt noch jeden A
 
 Dr. O. Hahn bezeichnet die Chondrite als einen „Filz von Tieren, ein Gewebe, dessen Maschen alle lebendige Wesen waren“; Herr Dr. Weinland erkennt in den fraglichen Einschlüssen, die man mit Gümbel kurz als „Chondren“ bezeichnen kann, ebenfalls „unzweifelhafte Tierreste“. Um allen jenen, welche Hahns Werk nicht selbst gelesen haben, von der Unzweideutigkeit dieser „Tierreste“ gleich von vorneherein einen kleinen Begriff zu geben, führe ich hier an, dass der größte Teil der „Tiere“ vor nicht langer Zeit von Herrn Dr. Hahn für — Pflanzen gehalten wurde!
 
-Auf S. 20 seines Werkes stellt Herr Dr. Hahn fünf Bedingungen auf, an deren Erfüllung sich nach seiner Ansicht der Beweis der organischen Natur der Chondren knüpft. Diese Bedingungen find:
+Auf S. 20 seines Werkes stellt Herr Dr. Hahn fünf Bedingungen auf, an deren Erfüllung sich nach seiner Ansicht der Beweis der organischen Natur der Chondren knüpft. Diese Bedingungen sind:
 1) Eine geschlossene Form.
 2) Eine wiederkehrende Form.
 3) Wiederkehren der Form in Entwicklungsstufen.
