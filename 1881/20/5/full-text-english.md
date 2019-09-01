@@ -8,4 +8,6 @@ I did not originally intend to announce in this way the view that I had formed a
 
 The only criticism of Hahn's work that has come to my attention thus far is the one come up with by the French Academy at the meeting of January 3, 1881. A French weekly (L'Illustration) has communicated this criticism to its readers under the title "Une erreur de savant allemand". Dumas, who had presented and discussed Hahn's book, first pointed out that according to Stanislas Meunier quite similar forms to that which Hahn considers to be organisms can be obtained through artificial means. Mr. Dumas seems to have succeeded in convincing the Academy of the incorrectness of Hahn's view because "L'Illustration" speaks of a “succès de rires unanimes”.
 
+I mention here that I had the opportunity and still have the opportunity at any moment to examine several splendid specimens of organisms (3) on thin sections of the Tieschitz meteorite of Moravia (July 15, 1878) so that I am not accused of incompletely representing the "too little" photographic tables of Hahn's work.
+
 ...
