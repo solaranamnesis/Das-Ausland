@@ -44,4 +44,6 @@ It may be of interest to many to learn that Dr. Hahn has observed on many of his
 
 If one compares the alleged organisms of the chondrites with terrestrial forms, one must presuppose similar conditions of existence; from this requirement one must consistently conclude that the chondrites are to be regarded as an analogue of terrestrial clastic rocks. Against this logically necessary result, Dr. Hahn decidedly pronounces a mode of formation for the chondrites which substantially alters our previous views on cosmology. However, if one goes by the premises as set out by Dr. Hahn and draw conclusions in a strictly logical manner, one soon finds oneself in a chaos of contradictions which are absolutely impossible to solve.
 
-...
+From the chemist's point of view one could also make many objections to Hahn's work; however, I do not want to go into it any further and only mention that such views as developed by Dr. Hahn, e.g. on the origin of the mountains and volcanoes, cannot be forgiven even by a layman nowadays.
+
+Brünn, April 25, 1881.
