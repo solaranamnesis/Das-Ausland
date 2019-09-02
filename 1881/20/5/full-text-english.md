@@ -34,7 +34,7 @@ It is clear from what has been said that the five conditions issued by Dr. Hahn 
 
 As far as the "corals" are concerned, a comparison or even identification of them with terrestrial forms is not permissible; since most of the "colonies" are only fractions of a millimeter in diameter, the dimensions of the individual "polyp tubes" one finds are so small that there is no justification in assuming that these microscopic colonies were inhabited by animals with a close relationship to terrestrial anthozoa. For this reason, Dr. Weinland raised the "Favosites" of the chondrite to a new genus, which he calls "Hahnia".
 
-To differentiate the cup, tube, and star corals appeared to me, that Dr. Hahn, apart from everything else, had gone too far.
+The differentiation between cup, tube, and star corals appeared to me that Dr. Hahn, apart from everything else, had gone too far.
 
 According to Dr. Hahn, the crinoids are found to be "of the simplest form with an articulated arm to the developed crinoids with stem, crown, main and auxiliary arms". Addressed as crinoids, e.g. Figures 1 and 2 of Table 25; but they do not look like it at all, for the alleged crinoid arms are everywhere the same width and quite simple, while, as is well known, they actually taper away from the crown and usually branch. The structure of the "arms" is so irregular and imperfect that, of all known crinoids, no one is reminded of one. The "kinking" of the arms can only explained, according to Dr. Hahn's view, by crinoids; if this kinking was not there, Dr. Hahn declares the undoubted crinoids as an equally undoubted coral! After finding one of the above-mentioned, cross-sectioned enstatite crystals also kinked, must I also consider it as a "crinoid arm"?
 
