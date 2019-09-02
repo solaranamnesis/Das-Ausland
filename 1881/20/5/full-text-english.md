@@ -42,4 +42,6 @@ Some "crinoids" consist according to Dr. Hahn "merely as any number of arms"; th
 
 It may be of interest to many to learn that Dr. Hahn has observed on many of his crinoids not only the stem and crown, but also the "mouth opening between the bulge", and — hear and be amazed — even clearly observed muscle layers!!
 
+If one compares the alleged organisms of the chondrites with terrestrial forms, one must presuppose similar conditions of existence; from this requirement one must consistently conclude that the chondrites are to be regarded as an analogue of terrestrial clastic rocks. Against this logically necessary result, Dr. Hahn decidedly pronounces a mode of formation for the chondrites which substantially alters our previous views on cosmology. However, if one goes by the premises as set out by Dr. Hahn and draw conclusions in a strictly logical manner, one soon finds oneself in a chaos of contradictions which are absolutely impossible to solve.
+
 ...
