@@ -1,6 +1,6 @@
 # Corals in the Meteorites
 
-## by Dr. D. Fr. Weinland
+## by Dr. David Friedrich Weinland
 
 The question of whether or not celestial bodies besides our Earth are inhabited or were inhabited by living beings is certainly one of the most interesting that exists for the thinking human being and, in all probability, could already be affirmed. The quite analogous physical conditions, as demonstrated by some of the other planets in our Solar System, and, as they probably represent the countless planets of other star systems, suggests with some certainty that not on Earth alone has higher organic processes of development taken place. But this has always been only a speculation, a hypothesis, however well supported.
 
