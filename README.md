@@ -10,6 +10,6 @@ Das Ausland Public Domain Works
 Corals in the Meteorites by Dr. David Friedrich Weinland
 
 [German Plain Text](1881/16/1/full-text-german.md)  
-[German PDF]  
+German PDF  
 [English Plain Text](1881/16/1/full-text-english.md)  
-[English PDF]  
+English PDF  
