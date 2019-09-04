@@ -40,7 +40,7 @@ Seine Beweise sind in der Hauptsache folgende:
 
 4) Enstatit und Turmalin haben Querklüfte, welche leicht mit Querscheidewänden von Organismen verwechselt worden sein können.
 
-5) In dem Mineral „Feldspat (?)“ sah Herr Rzehak mehrere in einer Längsreihe geordnete Einschlüsse: folglich find, schließt er, „offenbar“ solche Einschlüsse in Chondritmineralien irrtümlich für „Perforationen“ gehalten worden.
+5) In dem Mineral „Feldspat (?)“ sah Herr Rzehak mehrere in einer Längsreihe geordnete Einschlüsse: folglich sind, schließt er, „offenbar“ solche Einschlüsse in Chondritmineralien irrtümlich für „Perforationen“ gehalten worden.
 
 6) Auch Hagelkörner kommen vor, welche Ähnlichkeit mit der Struktur der Chondrite haben. (Gümbel.)
 
