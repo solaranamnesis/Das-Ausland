@@ -22,4 +22,10 @@ Now several points:
 
 4\. A big misconception would be the hypothesis that I have recently encountered in a letter from an eminent writer, and that may also be held by others who are not familiar with the composition of the chondrite meteorites, saying that these organic forms might be the remains of lower animals that arose on the surface during their course through space. Naturally this is not the case. Rather, these structures are inclusions in the meteorites. They are petrefacts, nothing else, and the chondrite meteorites themselves seem to us to be merely the primary petrefact rock debris of a foreign heavenly body, though certainly interesting enough as such. —
 
+We kindly ask Mr. Rzehak from Brünn, before he can continue to be heard on the matter, either for a gracious inspection of our cuts themselves or for further cuts and then more microscopy, as Hahn and I have been doing for months. Then who knows, maybe in one way or another he will become an advocate of Hahn's discovery, as has recently become of a well-known South German mineralogist and paleontologist at my microscope.
+
+***
+
 ...
+
+
