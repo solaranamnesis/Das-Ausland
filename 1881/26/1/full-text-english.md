@@ -36,6 +36,6 @@ His evidence is essentially the following:
 
 2\. Hahn's properties of organic nature are not correctly stated, because two of the five characteristics given are not themselves evidence of an organism.
 
-3\. There are — here Mr. refers to a mineral with a question mark (feldspar?), which has quite clear columnar constructions but are admittedly not radially arranged — also tubular formations in the mineral kingdom, thus he concludes that the tubes in the chondrites are not necessarily of organic origin.
+3\. There are — here Mr. Rzehak refers to a mineral with a question mark (feldspar?), which has quite clear columnar constructions but are admittedly not radially arranged — also tubular formations in the mineral kingdom, thus he concludes that the tubes in the chondrites are not necessarily of organic origin.
 
 ...
