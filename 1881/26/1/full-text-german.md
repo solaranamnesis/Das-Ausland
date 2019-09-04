@@ -44,7 +44,7 @@ Seine Beweise sind in der Hauptsache folgende:
 
 6) Auch Hagelkörner kommen vor, welche Ähnlichkeit mit der Struktur der Chondrite haben. (Gümbel.)
 
-Was weiter vorgebracht ist, ist bloß Kritik von Schlussfolgerungen, welche ich deshalb bei Seite lasse, weil, wenn meine Tatsachen richtig find, diese Kritik von selbst fällt.
+Was weiter vorgebracht ist, ist bloß Kritik von Schlussfolgerungen, welche ich deshalb bei Seite lasse, weil, wenn meine Tatsachen richtig sind, diese Kritik von selbst fällt.
 
 Was nun die Autorität der Pariser Akademie betrifft, so bemerke ich nur, dass es dieselbe Akademie ist, welche neun Jahre lang nach dem Erscheinen von Chladnis Buche über den kosmischen Ursprung der Meteorite noch die Behauptung des Fallens von Meteorsteinen für einen Wahnsinn erklärte, dann aber doch, freilich erst nach neun Jahren, durch einen — Postknecht sich von der Unrichtigkeit ihrer bisherigen Meinung überzeugen ließ. Ihr Trost waren damals folgende Sätze: „Der Dumme glaubt,“ „der Halbgebildete entscheidet,“ „der Gebildete prüft,“ gewiss ein leichter Trost für solche Irrtümer (Quenstedt, Klar und Wahr S. 287).
 
