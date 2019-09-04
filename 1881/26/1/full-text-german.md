@@ -30,7 +30,7 @@ Bei der ungeheuren Wichtigkeit, welche die in Obigem erörterte Frage für die m
 
 In der Nr. 20 des „Auslands“ tritt Herr Anton Rzehak in Brünn gegen die „Organismen der Meteorite“ auf.
 
-Seine Beweise find in der Hauptsache folgende:
+Seine Beweise sind in der Hauptsache folgende:
 
 1) Die Akademie in Paris hat die Sache nicht anerkannt.
 
