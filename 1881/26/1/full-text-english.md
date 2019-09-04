@@ -42,6 +42,6 @@ His evidence is essentially the following:
 
 5\. In the "feldspar (?)" mineral Mr. Rzehak sees several inclusions with longitudinally arranged rows: he therefore concludes that "obviously" such inclusions in the chondrite minerals have been mistaken for "perforations".
 
-6\. Hailstones also occur that posses similar structures like that of the chondrites. (Gümbel.)
+6\. Hailstones also occur that posses structures similar to that of the chondrites. (Gümbel.)
 
 ...
