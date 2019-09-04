@@ -26,6 +26,6 @@ We kindly ask Mr. Rzehak from Brünn, before he can continue to be heard on the 
 
 ***
 
+Because the issue discussed above is of tremendous importance to modern science, and because of the lively discussion it arouses in the participating circles, the editorial board believes that Dr. Weinland's preceding explainations should be immediately followed by Dr. Otto Hahn's comments. Dr. Otto Hahn writes:
+
 ...
-
-
