@@ -34,6 +34,6 @@ His evidence is essentially the following:
 
 1\. The Paris Academy has not accepted the case.
 
-2\. Hahn's properties of organic nature are not correctly stated, because two of the five characteristics stated are not themselves evidence of an organism.
+2\. Hahn's properties of organic nature are not correctly stated, because two of the five characteristics given are not themselves evidence of an organism.
 
 ...
