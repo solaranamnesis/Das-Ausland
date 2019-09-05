@@ -80,6 +80,8 @@ Therefore, I have given a number of such under high magnification, like Table 9 
 
 Against these photographic images of the structure of the chondrites, the author cites and describes his observation, as stated above, of a mineral with a question mark; he thinks it is feldspar. In the mineral (which the author does not know himself) he has observed "columnar construction". But first of all, you will probably remember, he did not find curved columns, as found in my forms, but rectilinear outlines. Just as well, and far easier, he could have summoned basalt columns as a counter proof.
 
-The fact that my structures are curved tubes is either overlooked or concealed by Mr. Rzehak, plus both are necessary, the latter doubly necessary to mention, because my book, as the author himself says, is only in a few hands, while his criticism reaches many hands. Now, tubes!
+The fact that my structures are curved tubes is either overlooked or concealed by Mr. Rzehak, but both are necessary to mention, with the latter doubly so, because my book, as the author himself says, is only in a few hands, while his criticism reaches many hands. Now, tubes!
+
+To refute my notion would require that he demonstrate tubular structure in his (?) mineral. That there are crystal aggregates with rectilinear outlines requires no need for a mineral with a question mark: everyone knows this, even the layman. But that there are minerals (and not aggregates) that consist entirely of curved tubes, I have neither read nor seen.
 
 ...
