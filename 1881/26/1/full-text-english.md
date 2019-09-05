@@ -78,4 +78,6 @@ Mr. Rzehak did not give an answer to this question, which I already raised in my
 
 Therefore, I have given a number of such under high magnification, like Table 9 and 15; I have also supplemented the text with what I could not show, at least through the photographs, at such high magnification.
 
+Against these photographic images of the structure of the chondrites, the author cites and describes his observation, as stated above, of a mineral with a question mark; he thinks it is feldspar. In the mineral (which the author does not know himself) he has observed "columnar construction". But first of all, you will probably remember, he did not find round columns, as found in my forms, but rectilinear outlines. Just as well, and far easier, he could have summoned the basalt columns as a counter proof.
+
 ...
