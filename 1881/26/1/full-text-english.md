@@ -70,4 +70,6 @@ If I were to concede any verdicts to Mr. Rzehak, he would first have to assure m
 
 My proof, first of all, is a negative one, i.e. proof that the mineral structure is not possible: and a positive one, that the forms of the meteorites are in accordance with recognized organism forms.
 
+The first argument, the negative one, is (as I said) completely ignored in the critique. Above all, I would have expected a refutation of this part, since it is accessible to anyone. I refer here to my book of meteorites (chondrites) p. 20, please read it.
+
 ...
