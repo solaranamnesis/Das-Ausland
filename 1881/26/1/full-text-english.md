@@ -66,4 +66,6 @@ And what is the evidence of Mr. Rzehak? One (!) mineral, which he cannot even de
 
 On the whole, this is not addressed. He concludes _a priori_ where facts exist, apologizing for minerals that no one can see and compare, and making light of things that are obviously unknown.
 
+If I were to concede any verdicts to Mr. Rzehak, he would first have to assure me that he knew my material or at least saw as much material as I have. But to the point!
+
 ...
