@@ -72,4 +72,6 @@ My proof, first of all, is a negative one, i.e. proof that the mineral structure
 
 The first argument, the negative one, is (as I said) completely ignored in the critique. Above all, I would have expected a refutation of this part, since it is accessible to anyone. I refer here to my book of meteorites (chondrites) p. 20, please read it.
 
+I would like to hear only one question answered by Mr. Rzehak, if he is a mineralogist: how is it possible that one or two minerals, as is commonly assumed and of which the chondrites are composed, be from the same stone (of some five hundredweights), that is, born and formed under the same conditions, all showing the hundreds of structural forms that I have depicted in my work? And now multiply these structures by 25.
+
 ...
