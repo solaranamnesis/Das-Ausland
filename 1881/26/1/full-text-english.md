@@ -62,4 +62,6 @@ With only the statements 3, 4, and 5 the author of the criticism wants to explai
 
 Mr. Rzehak does not think it necessary to address the negative proof that they are not mineral formations, only the positive that deals with real organisms: nor do my thirty-two photographic tables exist for him. That they possess significance in themselves, I appeal to the judgement of the foremost authority in the field of mineral structure, which is as follows: "regardless of the interpretation one wants, your book must, in any case, be regarded as an excellent work on the structure of the meteorites and whose tables are of the greatest scientific value."
 
+And what is the evidence of Mr. Rzehak? One (!) mineral, which cannot even determine — evidence that either the mineral is uncertain and therefore not evidence or that Mr. Rzehak is not a mineralogist. The latter suggests that his mineral appears unique, although a hollow form in feldspar (in the process of corrosion) is a very common phenomenon. It is not necessary to have this shadowy crystal brought up at all, as Mr. Rzehak could have directly and briefly referred to this fact, but of course I would have then pointed out to him the difference between mineral and organism. About this (?) mineral Mr. Rzehak gives no picture so that readers could see and judge for themselves.
+
 ...
