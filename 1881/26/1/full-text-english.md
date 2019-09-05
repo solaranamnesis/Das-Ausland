@@ -68,6 +68,6 @@ On the whole, this is not addressed. He concludes _a priori_ where facts exist, 
 
 If I were to concede any verdicts to Mr. Rzehak, he would first have to assure me that he knew my material or at least saw as much material as I have. But to the point!
 
-My proof, first of all, is a negative one, i.e. proof that the mineral structure is not known: and a positive one, that the forms of the meteorites are in accordance with recognized organism forms.
+My proof, first of all, is a negative one, i.e. proof that the mineral structure is not possible: and a positive one, that the forms of the meteorites are in accordance with recognized organism forms.
 
 ...
