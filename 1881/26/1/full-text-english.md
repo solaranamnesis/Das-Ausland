@@ -56,4 +56,8 @@ Even the Academy of 1800 still had hundreds of "physical and moral arguments" ag
 
 However, Mr. Rzehak has "physical and moral arguments" against my work, which I will now discuss in more detail.
 
+Above all, he contests my definition of the organic by not allowing two features of my notion, namely "closed form" and "recurring form", to be sufficient in themselves to prove the existence of an organism. But since I call for five related traits as proof of an organic being, I myself declare these two characteristics as insufficient proof by themselves: as an argument against me, this is not truthful.
+
+With only the statements 3, 4, and 5 the author of the criticism wants to explain the structure of the chondrites from minerals, provided that he is sorry to Gümbel.
+
 ...
