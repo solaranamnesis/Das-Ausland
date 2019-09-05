@@ -76,4 +76,6 @@ I would like to hear only one question answered by Mr. Rzehak, if he is a minera
 
 Mr. Rzehak did not give an answer to this question, which I already raised in my book: he is content to quote Gümbel, who believed that he had found structures similar to those of the chondrites in ice (hailstones). — It would indeed cause a great stir if ice and enstatite crystallites were similar. That there are seemingly columnar structures in ice and many mineral aggregates is certain, except the difference is that in the chondrites there are not only fracture (optical) lines, but truly substantial walls formed by a second mineral; these "columns" are not all in a mess like in the (?) mineral of Mr. Rzehak, but quite regularly arranged, and indeed eccentrically and not concentrically, and furthermore the parts do not form a sphere, but rather a flat sheet of tubes. The crux of my demonstration, the key to my position, is the frequent large and small structures, the regularity of which absolutely excludes the supposition of natural inclusions.
 
+Therefore, I have given a number of such under high magnification, like Table 9 and 15; I have also supplemented the text with what I could not show, at least through the photographs, at such high magnification.
+
 ...
