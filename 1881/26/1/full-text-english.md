@@ -50,6 +50,10 @@ As far as the authority of the Paris Academy is concerned, I only note that it i
 
 When Mr. Rzehak summons the judgement of the _Comptes Rendus_, I must add that the member of the Paris Academy, Mr. Daubrée (not Dumas), who accepted my work replied to me that he had obtained similar forms through melting the forms found in the chondrites; however, at my request for information on such a melt product I received neither an answer nor such a product: proceedings which do not suggest the correctness of a claim.
 
-In his book _Experimental Geology_, p. 386, Mr. Daubrée depicts the Knyahynia meteorite, though not very accurate. That the inclusions have structures, he has overlooked, for the simple reason that all his investigations begin with powders and the melting of stone.
+In his book _Experimental Geology_, p. 386, Mr. Daubrée depicts the Knyahynia meteorite, though not very accurately. That the inclusions have structures, he has overlooked, for the simple reason that all his investigations begin with powders and the melting of stone.
+
+Even the Academy of 1800 still had hundreds of "physical and moral arguments" against the cosmic origin of meteorites, a view which if repeated today would have no success other than that of laughter.
+
+However, Mr. Rzehak has "physical and moral arguments" against my work, which I will now discuss in more detail.
 
 ...
