@@ -46,7 +46,8 @@ His evidence is essentially the following:
 
 What is further argued is only criticism of conclusions, which I leave aside because if my facts are correct then this criticism falls by itself.
 
-As far as the authority of the Paris Academy is concerned, I only note that it is the same academy which, for nine years after the publication of Chladni's book on the cosmic origin of meteorites, declared the proposition of falling meteorites as madness but then, after all, it was only after nine years that a postman convinced himself of the incorrectness of their previous opinion. Their consolation at the time was the following phrases: "the fool believes", "the half-educated concludes", "the educated verifies", certainly light consolation for such errors (Quenstedt, Klar and Wahr p. 287).
+As far as the authority of the Paris Academy is concerned, I only note that it is the same academy which, for nine years after the publication of Chladni's book on the cosmic origin of meteorites, declared the proposition of falling meteorites as madness but then, after all, it was only after nine years that a post office worker convinced himself of the incorrectness of their previous opinion. Their consolation at the time was the following phrases: "the fool believes", "the half-educated concludes", "the educated verifies", certainly light consolation for such errors (Quenstedt, Klar and Wahr p. 287).
+
+When Mr. Rzehak summons the judgement of the Comptes Rendus, I must add that the member of the Paris Academy, Mr. Daubrée (not Dumas), who accepted my work replied to me that he had obtained similar forms through melting the forms found in the chondrites; however, at my request for information on such a melt product I received neither an answer nor such a product: proceedings which do not suggest the correctness of a claim.
 
 ...
-
