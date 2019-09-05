@@ -60,6 +60,6 @@ Above all, he contests my definition of the organic by not allowing two features
 
 With only the statements 3, 4, and 5 the author of the criticism wants to explain the structure of the chondrites from minerals, provided that he apologizes to Gümbel.
 
-Mr. Rzehak does not think it necessary to address the negative proof that they are not mineral formations, only the positive that deals with real organisms: nor do my thirty-two photographic tables exist for him. That they possess significance in themselves, I appeal to the judgement of foremost authority in the field of mineral structure, which is as follows: "regardless of the interpretation one wants, your book must, in any case, be regarded as an excellent work on the structure of the meteorites and whose tables are of the greatest scientific value."
+Mr. Rzehak does not think it necessary to address the negative proof that they are not mineral formations, only the positive that deals with real organisms: nor do my thirty-two photographic tables exist for him. That they possess significance in themselves, I appeal to the judgement of the foremost authority in the field of mineral structure, which is as follows: "regardless of the interpretation one wants, your book must, in any case, be regarded as an excellent work on the structure of the meteorites and whose tables are of the greatest scientific value."
 
 ...
