@@ -84,4 +84,6 @@ The fact that my structures are curved tubes is either overlooked or concealed b
 
 To refute my notion would require that he demonstrate tubular structure in his (?) mineral. That there are crystal aggregates with rectilinear outlines requires no need for a mineral with a question mark: everyone knows this, even the layman. But that there are minerals (and not aggregates) that consist entirely of curved tubes, I have neither read nor seen.
 
+A mere mineral has no structure at all, it can only reproduce a kind of mechanical outgrowth or chemical dissociation pattern structure, to which it recursively unites with the original mineral. So the observation on the feldspar in question does not apply here at all.
+
 ...
