@@ -100,6 +100,6 @@ I can assure the author that I have already seen hundreds and thousands of glass
 
 In the fourth place, the gentleman author concludes with an explanation of the transverse partition walls. Here too his criticism is incorrect.
 
-It is well-known to me. In my book, however, I discuss this objection both as it regards the explanation of the tubes, lamellas from sheet breakage, and, as it concerns the transverse partition walls from transverse fissures, point out that both the sheet breakage and the transverse fissures are merely optical phenomena, while the cell partition walls of the organisms and especially the transverse partition walls in my forms are built of special substances. Therefore, to show an image of simple breakage and partitioning, I have depicted a terrestrial enstatites (Texas) that is a mere mineral whose fractures appear as black lines.
+It is well-known to me. In my book, however, I discuss this objection, both as it regards the explanation of the tubes and lamellas from sheet breakage and as it concerns the transverse partition walls from transverse fissures, and point out that both the sheet breakage and the transverse fissures are merely optical phenomena, while the cell partition walls of the organisms and especially the transverse partition walls in my forms are built of special substances. Therefore, to show an image of simple breakage and partitioning, I have depicted a terrestrial enstatite (Texas) that is a mere mineral whose fractures appear as black lines.
 
 ...
