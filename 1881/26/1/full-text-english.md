@@ -116,4 +116,6 @@ However, if each case is unique, then its value is also relative, a value that i
 
 I leave the reply to the zoological objections to my friend Dr. Weinland.
 
+I allow myself to extract but one sentence from Mr. Rzehak.
+
 ...
