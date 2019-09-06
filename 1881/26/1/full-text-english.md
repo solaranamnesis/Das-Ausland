@@ -110,4 +110,6 @@ When an organism is "petrified", a mineral takes the place of organic material. 
 
 I hope for German science that it will not be deterred by such reasons from a truely thorough examination, which is surely needed after my previous work. Indeed, much lesser objects in microgeology and mineralogy have been done with much more honor and effort: one may even say, to the point of thoughtlessness or at least to the point where nothing is left to be thought about other than the observations themselves. In the meteorites, and specifically the chondrites, rock is preserved that provides the only certain  information about planet formation and also the formation of Earth. That this investigation was a highly needed one is evident by comparing what was published previously with my tables.
 
+The external reason probably lies in the rarity and preciousness of the material. But thrift in science has its limits; if the meteorites are left as they are in the collections today, they are a dead treasure. Nor should one fear that they will run out; they will always fall again.
+
 ...
