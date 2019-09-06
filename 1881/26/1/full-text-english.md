@@ -98,4 +98,8 @@ And to return to the present case, I at the least insist that from hereon, contr
 
 I can assure the author that I have already seen hundreds and thousands of glass inclusions, but no rock has remotely demonstrated what I have observed in the chondrites. Here, at a magnification of 1000x, there are not found magnetite grains as often occur in meteorite rocks, nor arbitrarily shaped glass inclusions, but circular, sometimes elliptical shaped surfaces with a wall, with at least a darker colored mass between the circle and its surroundings; moreover, this circle often lies in a depression (which one can really see in Table 15): the "perforations" are found only in tubes and finally, the wall of the toll-wall is pierced laterally by the channels, which are symmetrical and equidistant to those which are seen as points in the cross-section. These lateral intersections are quite clear in form, Table 8 at 300x magnification. This is something other than an infilling or inclusion.
 
+In the fourth place, the gentleman author concludes with an explanation of the transverse partition walls. Here too his criticism is incorrect.
+
+It is well-known to me. In my book, however, I discuss this objection both as it regards the explanation of the tubes, lamellas from sheet breakage, and, as it concerns the transverse partition walls from transverse fissures, point out that both the sheet breakage and the transverse fissures are merely optical phenomena, while the cell partition walls of the organisms and especially the transverse partition walls in my forms are built of special substances. Therefore, to show an image of simple breakage and partitioning, I have depicted a terrestrial enstatites (Texas) that is a mere mineral whose fractures appear as black lines.
+
 ...
