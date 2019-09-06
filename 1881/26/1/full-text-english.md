@@ -102,4 +102,6 @@ In the fourth place, the gentleman author concludes with an explanation of the t
 
 It is well-known to me. In my book, however, I discuss this objection, both as it regards the explanation of the tubes and lamellas from sheet breakage and as it concerns the transverse partition walls from transverse fissures, and point out that both the sheet breakage and the transverse fissures are merely optical phenomena, while the cell partition walls of the organisms and especially the transverse partition walls in my forms are built of special substances. Therefore, to show an image of simple breakage and partitioning, I have depicted a terrestrial enstatite (Texas) that is a mere mineral whose fractures appear as black lines.
 
+However, the enstatite of the Bishopsville meteorite is a pure enstatite mineral and coincides with that of Texas in Table 1: Figure 2 (i.e. a meteoritic enstatite with a terrestrial enstatite) so perfectly that the images cannot be distinguished. If meteoritic enstatite, where it exists only as a mineral, has the same structure as the terrestrial one, it follows that if the meteoritic minerals have completely different structures, then the latter must have a special cause (not located in the mineral).
+
 ...
