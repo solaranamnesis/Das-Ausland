@@ -112,4 +112,6 @@ I hope for German science that it will not be deterred by such reasons from a tr
 
 The external reason probably lies in the rarity and preciousness of the material. But thrift in science has its limits; if the meteorites are left as they are in the collections today, they are a dead treasure. Nor should one fear that they will run out; they will always fall again.
 
+However, if each case is unique, then its value is also relative, a value that is only known by what one has. One simply sacrifices, as I have done through private means, and the matter will soon be decided: who is right, I, who has seen, or Mr. Rzehak, who has seen nothing.
+
 ...
