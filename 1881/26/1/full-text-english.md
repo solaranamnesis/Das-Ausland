@@ -106,4 +106,6 @@ However, the enstatite of the Bishopsville meteorite is a pure enstatite mineral
 
 Here I must lead with a fact that has long been known.
 
+When an organism is "petrified", a mineral takes the place of organic material. It may leave some of the original substance behind, e.g. the silicic scaffoldings of sponges. Yet this does not come into consideration here. Usually all of the substance is recast, or at least the cavities are filled afresh. The transforming mineral is a mineral and remains so, as such it has its properties, it is only capable of crowding the spot of the original organism, whose outermost contours remain preserved, while the entire form is filled by the mineral. The same form is demonstrated, e.g. calcite with its three sheet breakages, at the site of the Cidaris spikes, which Quenstedt indicates in "Epochs of Nature", p. 558. The Cidaris spike is a pure calcite substance, though its contours are completely maintained so that nobody would suspect it as merely calcite with sheet breakages. This is partly the type of petrification in the chondrite organisms. Externally enstatite, internally olivine. Also however, where the structures are preserved they are merely filled with the mineral and they have all its ordinary physical properties.
+
 ...
