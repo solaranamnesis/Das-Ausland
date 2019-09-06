@@ -1,6 +1,6 @@
-# More About the Animal Remains in the Meteorites.
+# More About the Animal Remains in the Meteorites
 
-## Dr. David Friedrich Weinland.
+## Dr. David Friedrich Weinland
 
 The critical remarks by Mr. Anton Rzehak from Brünn, published in No. 20 of this journal, about the organisms of the meteorites prompts me to say more on this matter, since Mr. Rzehak explicitly refers to my memo about corals in the meteorites in No. 16 of this body.
 
