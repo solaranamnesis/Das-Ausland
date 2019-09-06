@@ -90,4 +90,6 @@ That which distinguishes the crystal columns from the curved tubes of the chondr
 
 Thirdly, in order to explain even the finer structures, the "favositoid" channels mineralogically, or more correctly, to establish me in this direction as a delusion, he summons the glass inclusions in the (?) mineral that gives an impression of a transverse channel and, where they line together, that of a hollow space.
 
+As I presented and said in my book, the channel of the meteorite (Favosites) are in totally equal sections, the glass inclusions are not, and here I want to add that they are in cross cuts not as points, but are present as clear transverse channels, hence not a not disseminated mineral (spot), but truly are quite undoubted tubes (germination channels of Favosites). Hienach can no longer speak of round glass inclusions as counter evidence to the fact. Yet, not a researcher who has seen my objects has made the objection that what I declare as germination channels (perforations) are mere inclusions.
+
 ...
