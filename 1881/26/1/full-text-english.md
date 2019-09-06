@@ -118,4 +118,8 @@ I leave the reply to the zoological objections to my friend Dr. Weinland.
 
 I allow myself to extract but one sentence from Mr. Rzehak.
 
+"Dr. Hahn considers indistinct tangles of small crystal bands to be needle spicules of sponges."
+
+By this, the author probably refers to the pictures of Table 8 of my work. It was precisely through these that a zoologist of the best name was convinced — because what Mr. Rzehak sees in my pictures only as needles, still has structure, and indeed one of high quality.
+
 ...
