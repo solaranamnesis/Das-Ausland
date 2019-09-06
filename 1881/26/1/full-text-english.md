@@ -122,4 +122,6 @@ I allow myself to extract but one sentence from Mr. Rzehak.
 
 By this, the author probably refers to the pictures of Table 8 of my work. It was precisely through these that a zoologist of the best name was convinced — because what Mr. Rzehak sees in my pictures only as needles, still has structure, and indeed one of high quality.
 
+Each needle has a sharply cut cavity like the needle sponge. I put this form among the figures in the rock with the justified stipulation that it would be visited by other researchers, particularly those who want to write a review (if they are unable to see the objects).
+
 ...
