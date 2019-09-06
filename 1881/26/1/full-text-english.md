@@ -124,4 +124,6 @@ By this, the author probably refers to the pictures of Table 8 of my work. It wa
 
 Each needle has a sharply cut cavity like the needle sponge. I put this form among the figures in the rock with the justified stipulation that it would be visited by other researchers, particularly those who want to write a review (if they are unable to see the objects).
 
+The deduction that the forms, if they are genuinely similar to our terrestrial organisms, must have been built up under identical conditions, which is obviously not the case, is a much too general hypothesis.
+
 ...
