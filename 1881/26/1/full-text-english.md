@@ -94,4 +94,6 @@ As I presented and said in my book, the channel of the meteorite (Favosites) are
 
 Here I must go even further and point out the biggest mistake of all criticism dealing with external perceptions: it exists therein, that one criticizes observations of third parties before one has seen the obervation-object of the objector. 
 
+And to return to the present case, I at the least insist that from hereon, controlled cuts shall be performed on Knyahynia. 
+
 ...
