@@ -104,4 +104,6 @@ It is well-known to me. In my book, however, I discuss this objection, both as i
 
 However, the enstatite of the Bishopsville meteorite is a pure enstatite mineral and coincides with that of Texas in Table 1: Figure 2 (i.e. a meteoritic enstatite with a terrestrial enstatite) so perfectly that the images cannot be distinguished. If meteoritic enstatite, where it exists only as a mineral, has the same structure as the terrestrial one, it follows that if the meteoritic minerals have completely different structures, then the latter must have a special cause (not located in the mineral).
 
+Here I must lead with a fact that has long been known.
+
 ...
