@@ -114,4 +114,6 @@ The external reason probably lies in the rarity and preciousness of the material
 
 However, if each case is unique, then its value is also relative, a value that is only known by what one has. One simply sacrifices, as I have done through private means, and the matter will soon be decided: who is right, I, who has seen, or Mr. Rzehak, who has seen nothing.
 
+I leave the reply to the zoological objections to my friend Dr. Weinland.
+
 ...
