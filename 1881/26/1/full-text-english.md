@@ -144,4 +144,6 @@ Here there is not such. As a result, crystallites are distinguishable from organ
 
 For instance, what the author might cite for himself would be the depiction of Vogelsang in his _Philosophy of Geology_, Table 5, microlith-concretions in ordinary green glass.
 
+But the great and most significant differences emerge immediately — no walls — randomly stored inclusions. — Include the polarizing microscope and no one will associate my corals of Table 8 and 9 and Table 11: Figure 1 with any columnar mineral aggregate.
+
 ...
