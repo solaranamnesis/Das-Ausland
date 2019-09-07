@@ -132,5 +132,6 @@ In the coal rock masses we have Calamites living, here in geological terms, cert
 
 Such sentences, I say to the general public, as the author puts it, decide nothing. But if they were to be effective in this barrierless general public, I can with the same right stand up to the author's following statement: 
 
-...
+"If the chondrites, as generally admitted, consist of enstatite and olivine, and if they are nothing but minerals, then our terrestrial olivine and enstatite must show the same structures as the meteoritic ones, which is nowadays by no means true."
 
+...
