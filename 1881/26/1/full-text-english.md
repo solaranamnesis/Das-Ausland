@@ -140,4 +140,6 @@ Regarding the general propositions concerning the nature of creation, specifical
 
 Contrary to the remarks of the author, I can briefly point to the best arrangements of crystallites of Vogelsang, published by Zirkel (Bonn 1875). This thorough researcher has depicted strange forms that could be compared to the meteoritic ones if, as he expressly points out, there was a single one that showed structure.
 
+Here there is not such. As a result, crystallites are distinguishable from organisms.
+
 ...
