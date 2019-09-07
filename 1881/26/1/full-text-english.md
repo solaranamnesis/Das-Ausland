@@ -126,4 +126,6 @@ Each needle has a sharply cut cavity like the needle sponge. I put this form amo
 
 The deduction that the forms, if they are genuinely similar to our terrestrial organisms, must have been built up under identical conditions, which is obviously not the case, is a much too general hypothesis.
 
+First, the line of facts decides, and, provided it does, the law must be then be limited. But the sentence of the gentleman author himself is incorrect. What does "identical conditions" mean in nature?
+
 ...
