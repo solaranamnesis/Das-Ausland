@@ -1,4 +1,4 @@
-# About the "Organisms of the Meteorites".
+# About the "Organisms of the Meteorite".
 
 ## By Anton Rzehak in Brünn.
 
