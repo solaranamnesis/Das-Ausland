@@ -142,4 +142,6 @@ Contrary to the remarks of the author, I can briefly point to the best arrangeme
 
 Here there is not such. As a result, crystallites are distinguishable from organisms.
 
+For instance, what the author might cite for himself would be the depiction of Vogelsang in his _Philosophy of Geology_, Table 5, microlith-concretions in ordinary green glass.
+
 ...
