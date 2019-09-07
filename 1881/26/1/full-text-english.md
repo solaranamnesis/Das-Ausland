@@ -134,4 +134,6 @@ Such sentences, I say to the general public, as the author puts it, decide nothi
 
 "If the chondrites, as generally admitted, consist of enstatite and olivine, and if they are nothing but minerals, then our terrestrial olivine and enstatite must show the same structures as the meteoritic ones, which is nowadays by no means true."
 
+Here there are two very different facts (effects) with the same cause, and since this is not possible, I conclude and believe, with the same or even better right than the author, in another cause of formation that is outside the mineral, which is the organic one.
+
 ...
