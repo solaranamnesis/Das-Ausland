@@ -138,4 +138,6 @@ Here there are two very different facts (effects) with the same cause, and since
 
 Regarding the general propositions concerning the nature of creation, specifically meteorite creation, these should only be discussed once the preliminary question of whether there are questionable organisms has been decided. But this cannot be done with a (?) crystal, at least this (?) crystal, which no third party sees, cannot decide, whether or not the author is really seeing what he says, something against my photographic facts. But if one subtracts this (?) crystal, and rightly so from the account of the gentleman author, nothing remains of his entire performance, only general propositions whose applicability are quite questionable, because we are very unclear about the "conditions" which we also describe.     
 
+Contrary to the remarks of the author, I can briefly point to the best arrangements of crystallites of Vogelsang, published by Zirkel (Bonn 1875). This thorough researcher has depicted strange forms that could be compared to the meteoritic ones if, as he expressly points out, there was a single one that showed structure.
+
 ...
