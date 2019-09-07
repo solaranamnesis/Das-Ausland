@@ -136,4 +136,6 @@ Such sentences, I say to the general public, as the author puts it, decide nothi
 
 Here there are two very different facts (effects) with the same cause, and since this is not possible, I conclude and believe, with the same or even better right than the author, in another cause of formation that is outside the mineral, which is the organic one.
 
+Regarding the general propositions concerning the nature of creation, specifically meteorite creation, these should only be discussed once the preliminary question of whether there are questionable organisms has been decided. But this cannot be done with a (?) crystal, at least this (?) crystal, which no third party sees, cannot decide, whether or not the author is really seeing what he says, something against my photographic facts. But if one subtracts this (?) crystal, and rightly so from the account of the gentleman author, nothing remains of his entire performance, only general propositions whose applicability are quite questionable, because we are very unclear about the "conditions" which we also describe.     
+
 ...
