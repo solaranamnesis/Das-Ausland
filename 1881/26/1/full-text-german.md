@@ -142,7 +142,7 @@ Ich kann gegen die Ausführungen des Herrn Verfassers mich kurz auf die besten B
 
 Eine solche ist nicht da. Dadurch unterscheiden sich Kristalliten von Organismen.
 
-Was der Herr Verfasser etwa für sich anführen könnte, wäre die Abbildung Vogelfangs in dessen Philosophie der Geologie Taf. V, Mikrolithen-Konkretionen in gewöhnlichem grünem Glase.
+Was der Herr Verfasser etwa für sich anführen könnte, wäre die Abbildung Vogelsangs in dessen Philosophie der Geologie Taf. V, Mikrolithen-Konkretionen in gewöhnlichem grünem Glase.
 
 Allein die großen und gerade erheblichsten Unterschiede treten auch sofort hervor — keine Wände — regellos gelagerte Einschlüsse. — Man nehme auch das Polarisationsmikroskop dazu, und niemand wird meine Korallen Taf. VIII, IX, XI, Fig. 1 mit irgendeinem stengligen Mineral-Aggregat in Zusammenhang bringen.
 
