@@ -130,4 +130,7 @@ First, the line of facts decides, and, provided it does, the law must be then be
 
 In the coal rock masses we have Calamites living, here in geological terms, certainly not with the same conditions present, but the same object only in other norms. However, the forms in the meteorites are similar only in their general design to the terrestrial ones. In a large proportion, for instance, it is very different: and this might be interpreted as different conditions (causes). Then we have the cause of the agreement, as well as the distinction. 
 
+Such sentences, I say to the general public, as the author puts it, decide nothing. But if they were to be effective in this barrierless general public, I can with the same right stand up to the author's following statement: 
+
 ...
+
