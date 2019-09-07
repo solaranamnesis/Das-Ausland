@@ -128,4 +128,6 @@ The deduction that the forms, if they are genuinely similar to our terrestrial o
 
 First, the line of facts decides, and, provided it does, the law must be then be limited. But the sentence of the gentleman author himself is incorrect. What does "identical conditions" mean in nature?
 
+In the coal rock masses we have Calamites living, here in geological terms, certainly not with the same conditions present, but the same object only on a different scale. However, the forms in the meteorites are similar only in their general design to the terrestrial ones. In a large proportion, for instance, it is very different: and this might be interpreted as different conditions (causes). Then we have the cause of the agreement, as well as the distinction. 
+
 ...
