@@ -10,9 +10,9 @@ Das Ausland Public Domain Works
 Corals in the Meteorites by Dr. David Friedrich Weinland
 
 [German Plain Text](1881/16/1/full-text-german.md)  
-German PDF  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/16/1/Korallen-in-Meteorsteinen.pdf)  
 [English Plain Text](1881/16/1/full-text-english.md)  
-English PDF  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/16/1/Corals-in-the-Meteorites.pdf)  
 
 ### Volume 20
 
@@ -21,9 +21,9 @@ English PDF
 About the "Organisms of the Meteorites" by Anton Rzehak in Brünn
 
 [German Plain Text](1881/20/5/full-text-german.md)  
-German PDF  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/Über-die-„Organismen-der-Meteorite“.pdf)  
 [English Plain Text](1881/20/5/full-text-english.md)  
-English PDF  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/About-the-"Organisms-of-the-Meteorite".pdf)  
 
 ### Volume 26
 
@@ -32,6 +32,6 @@ English PDF
 More About the Animal Remains in the Meteorites by Dr. David Friedrich Weinland with letter from Dr. Otto Hahn
 
 [German Plain Text](1881/26/1/full-text-german.md)  
-German PDF  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/Weiteres-über-die-Tierreste-in-Meteoriten.pdf)  
 [English Plain Text](1881/26/1/full-text-english.md)  
-English PDF  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/More-About-the-Animal-Remains-in-the-Meteorites.pdf)  
