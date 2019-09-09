@@ -1,5 +1,5 @@
 # Das Ausland
-Das Ausland Public Domain Works
+Das Ausland Public Domain Works. Translations are based on the original Fraktur German.
 
 ## 1881
 
