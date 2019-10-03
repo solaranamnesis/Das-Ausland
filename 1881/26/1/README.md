@@ -1,5 +1,7 @@
 # Weiteres über die Tierreste in Meteoriten.
 
+# More About the Animal Remains in the Meteorites.
+
 ## Von Dr. D. F. Weinland
 
 (Includes editorial letter from Hahn)
