@@ -28,17 +28,17 @@ We kindly ask Mr. Rzehak from Brünn, before he can continue to be heard on the 
 
 Because the issue discussed above is of tremendous importance to modern science, and because of the lively discussion it arouses in the participating circles, the editorial board believes that Dr. Weinland's preceding explanations should be immediately followed by Dr. Otto Hahn's comments. Dr. Otto Hahn writes:
 
-In No. 20 of "Ausland" Mr. Anton Rzehak from Brünn goes against the "Organisms of the Meteorite".
+In No. 20 of _Das Ausland_ Mr. Anton Rzehak from Brünn goes against the "Organisms of the Meteorite".
 
 His evidence is essentially the following:
 
 1\. The Paris Academy has not accepted the case.
 
-2\. Hahn's properties of organic nature are not correctly stated, because two of the five characteristics given are not themselves evidence of an organism.
+2\. Hahn's conditions for organic nature are not correctly stated, because two of the five characteristics given are not themselves evidence of an organism.
 
-3\. There are — here Mr. Rzehak refers to a mineral with a question mark (feldspar (?)), which has quite clear columnar constructions but are admittedly not radially arranged — also tubular formations in the mineral kingdom, thus he concludes that the tubes in the chondrites are not necessarily of organic origin.
+3\. There are — and here Mr. Rzehak refers to a mineral with a question mark (feldspar (?)) that has quite clear columnar constructions but are admittedly not radially arranged — also tubular formations in the mineral kingdom, thus he concludes that the tubes in the chondrites are not necessarily of organic origin.
 
-4\. Enstatite and tourmaline have transverse fissures which can easily be confused with transverse partition walls of organisms.
+4\. Enstatite and tourmaline have transverse fissures that can easily be confused with the transverse partition walls of organisms.
 
 5\. In the "feldspar (?)" mineral Mr. Rzehak sees several inclusions with longitudinally arranged rows: he therefore concludes that "obviously" such inclusions in the chondrite minerals have been mistaken for "perforations".
 
@@ -46,9 +46,9 @@ His evidence is essentially the following:
 
 What is further argued is only criticism of conclusions, which will I leave aside because if my facts are correct then this criticism falls by itself.
 
-As far as the authority of the Paris Academy is concerned, I only note that it is the same academy which, for nine years after the publication of Chladni's book on the cosmic origin of meteorites, declared the proposition of falling meteorites as madness but then, after all, it was only after nine years that a post office worker convinced himself of the incorrectness of their previous opinion. Their consolation at the time was the following phrases: "the fool believes", "the half-educated concludes", "the educated verifies", certainly light consolation for such errors (Quenstedt, Klar and Wahr p. 287).
+As far as the authority of the Paris Academy is concerned, I only note that it is the same academy which, for nine years after the publication of Chladni's book on the cosmic origin of meteorites, declared the proposition of falling meteorites as madness but then, after all, it was only after nine years that a post office worker convinced himself of the incorrectness of their previous opinion. Their consolation at the time was the following phrases: "the fool believes", "the half-educated concludes", "the educated verifies", certainly light consolation for such errors (Quenstedt, _Klar und Wahr_ p. 287).
 
-When Mr. Rzehak summons the judgement of the _Comptes Rendus_, I must add that the member of the Paris Academy, Mr. Daubrée (not Dumas), who accepted my work replied to me that he had obtained similar forms through melting the forms found in the chondrites; however, at my request for information on such a melt product I received neither an answer nor such a product: proceedings which do not suggest the correctness of a claim.
+When Mr. Rzehak summons the judgement of the _Comptes Rendus_, I must add that the member of the Paris Academy, Mr. Daubrée (not Dumas), who accepted my work replied to me that he had obtained similar forms by melting the forms found in the chondrites; however, at my request for information on such a melt product I received neither an answer nor such a product: proceedings that do not suggest the correctness of a claim.
 
 In his book _Experimental Geology_, p. 386, Mr. Daubrée depicts the Knyahynia meteorite, though not very accurately. That the inclusions have structures, he has overlooked, for the simple reason that all his investigations begin with powders and the melting of stone.
 
@@ -56,11 +56,11 @@ Even the Academy of 1800 still had hundreds of "physical and moral arguments" ag
 
 However, Mr. Rzehak has "physical and moral arguments" against my work, which I will now discuss in more detail.
 
-Above all, he contests my definition of the organic by not allowing two features of my notion, namely "closed form" and "recurring form", to be sufficient in themselves to prove the existence of an organism. But since I call for five related traits as proof of an organic being, I myself declare these two characteristics as insufficient proof by themselves: as an argument against me, this is not truthful.
+Above all, he contests my definition of the organic by not allowing two features of my notion, namely "closed form" and "recurring form", to be sufficient in themselves to prove the existence of an organism. But since I called for five related traits as proof of an organic being, I myself declare these two characteristics as insufficient proof by themselves: as an argument against me, this is not truthful.
 
-With only the statements 3, 4, and 5 the author of the criticism wants to explain the structure of the chondrites from minerals, provided that he apologizes to Gümbel.
+With only statements three, four, and five the author of the criticism wants to explain the structure of the chondrites from minerals, provided that he apologizes to Gümbel.
 
-Mr. Rzehak does not think it necessary to address the negative proof that they are not mineral formations, only the positive that deals with real organisms: nor do my thirty-two photographic tables exist for him. That they possess significance in themselves, I appeal to the judgement of the foremost authority in the field of mineral structure, which is as follows: "regardless of the interpretation one wants, your book must, in any case, be regarded as an excellent work on the structure of the meteorites and whose tables are of the greatest scientific value."
+Mr. Rzehak does not think it necessary to address the negative proof, that they are not mineral formations, only the positive that deals with real organisms: nor do my thirty-two photographic tables exist for him. That they possess significance in themselves, I appeal to the judgement of the foremost authority in the field of mineral structure, which is as follows: "regardless of the interpretation one wants, your book must, in any case, be regarded as an excellent work on the structure of the meteorites and whose tables are of the greatest scientific value."
 
 And what is the evidence of Mr. Rzehak? One (!) mineral, which he cannot even determine — evidence that either the mineral is uncertain, and therefore not evidence, or that Mr. Rzehak is not a mineralogist. This suggests that his mineral appears unique, although a hollow form in feldspar (in the process of corrosion) is a very common phenomenon. It is not necessary to have this shadowy crystal brought up at all, as Mr. Rzehak could have directly and briefly referred to this fact, but of course I would have then pointed out to him the difference between mineral and organism. About this (?) mineral Mr. Rzehak gives no picture for readers to see and judge for themselves.
 
@@ -68,13 +68,13 @@ On the whole, this is not addressed. He concludes _a priori_ where facts exist, 
 
 If I were to concede any verdicts to Mr. Rzehak, he would first have to assure me that he knew my material or at least saw as much material as I have. But to the point!
 
-My proof, first of all, is a negative one, i.e. proof that the mineral structure is not possible: and a positive one, that the forms of the meteorites are in accordance with recognized organism forms.
+My proof, first of all, is a negative one, i.e. proof that the mineral structures are not possible: and a positive one, that the forms of the meteorites are in accordance with recognized organic forms.
 
 The first argument, the negative one, is (as I said) completely ignored in the critique. Above all, I would have expected a refutation of this part, since it is accessible to anyone. I refer here to my book of meteorites (chondrites) p. 20, please read it.
 
-I would like to hear only one question answered by Mr. Rzehak, if he is a mineralogist: how is it possible that one or two minerals, as is commonly assumed that the chondrites are composed of, be from the same stone (of some five hundredweights), that is, born and formed under the same conditions, all showing the hundreds of structural forms that I have depicted in my work? And now multiply these structures by 25.
+I would like to hear only one question answered by Mr. Rzehak, if he is a mineralogist: how is it possible that one or two minerals, as is commonly assumed that the chondrites are composed of, that are in the same stone (of some five hundredweights), that is, born and formed under the same conditions, display all the hundreds of structural forms that I have depicted in my work? And now multiply these structures by twenty-five.
 
-Mr. Rzehak did not give an answer to this question, which I already raised in my book: he is content to quote Gümbel, who believed that he had found structures similar to those of the chondrites in ice (hailstones). — It would indeed cause a great stir if ice and enstatite crystallites were similar. That there are seemingly columnar structures in ice and many mineral aggregates is certain, except the difference is that in the chondrites there are not only fracture (optical) lines, but truly substantial walls formed by a second mineral; these "columns" are not all in a mess like in the (?) mineral of Mr. Rzehak, but quite regularly arranged, and indeed eccentrically and not concentrically, and furthermore the parts do not form a sphere, but rather a flat sheet of tubes. The crux of my demonstration, the key to my position, is the frequent large and small structures, the regularity of which absolutely excludes the supposition of natural inclusions.
+Mr. Rzehak does not give an answer to this question, which I had already raised in my book: he is content to quote Gümbel, who believed that he had found structures similar to those of the chondrites in ice (hailstones). — It would indeed cause a great stir if ice and enstatite crystallites were similar. That there are seemingly columnar structures in ice and many mineral aggregates is certain, except the difference is that in the chondrites there are not only fracture (optical) lines, but truly substantial walls formed by a second mineral; these "columns" are not all in a mess like in the (?) mineral of Mr. Rzehak, but quite regularly arranged, and indeed eccentrically and not concentrically, and furthermore the parts do not form a sphere, but rather a flat sheet of tubes. The crux of my demonstration, the key to my position, is the frequent large and small structures, the regularity of which absolutely excludes the supposition of natural inclusions.
 
 Therefore, I have given a number of such under high magnification, like [Table 9](https://cdn.solaranamnesis.com/OttoHahn/figures/meteorite_9-1_edit-b3.jpg) [and 15](https://cdn.solaranamnesis.com/OttoHahn/figures/meteorite_15-1_edit-b3.jpg); I have also supplemented the text with what I could not show, at least through the photographs, at such high magnification.
 
