@@ -92,7 +92,7 @@ Thirdly, in order to explain the finer structures, the "favositoid" channels min
 
 As I presented and said in my book, the channels of the meteorite (_Favosites_) are in totally equal sections, the glass inclusions are not, and here I want to add that they are in cross-sections not as points, but are present as clear transverse channels, hence not a not disseminated mineral (spot), but truly are quite undoubted tubes (germination channels of _Favosites_). Here and after one can no longer speak of round glass inclusions as counter evidence to the fact. Not yet a researcher who has seen my objects has made the objection that what I declare as germination channels (perforations) are mere inclusions.
 
-Here I must go even further and point out the biggest mistake of all criticism dealing with external perceptions: it exists therein, that one criticizes observations of third parties before one has seen the obervation-material of the objected. 
+Here I must go even further and point out the biggest mistake of all criticism dealing with external perceptions: it exists therein, that one criticizes observations of third parties before one has seen the observation-material of the objected. 
 
 And to return to the present case, I at the least insist that, from hereon, controlled cuts should be performed on Knyahinya. 
 
