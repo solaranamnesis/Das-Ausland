@@ -21,9 +21,9 @@ Corals in the Meteorites by Dr. David Friedrich Weinland
 About the "Organisms of the Meteorite" by Anton Rzehak in Brünn
 
 [German Plain Text](1881/20/5/full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/Über-die-„Organismen-der-Meteorite“.pdf)  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/Uber-die-Organismen-der-Meteorite.pdf)  
 [English Plain Text](1881/20/5/full-text-english.md)  
-[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/About-the-"Organisms-of-the-Meteorite".pdf)  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/20/5/About-the-Organisms-of-the-Meteorite.pdf)  
 
 ### Volume 26
 
@@ -32,6 +32,6 @@ About the "Organisms of the Meteorite" by Anton Rzehak in Brünn
 More About the Animal Remains in the Meteorites by Dr. David Friedrich Weinland with letter from Dr. Otto Hahn
 
 [German Plain Text](1881/26/1/full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/Weiteres-über-die-Tierreste-in-Meteoriten.pdf)  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/Weiteres-uber-die-Tierreste-in-Meteoriten.pdf)  
 [English Plain Text](1881/26/1/full-text-english.md)  
 [English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/More-About-the-Animal-Remains-in-the-Meteorites.pdf)  
