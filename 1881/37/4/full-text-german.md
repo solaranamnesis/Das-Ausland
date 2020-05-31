@@ -42,4 +42,4 @@ Daß die „100Strukturformen“ sich auf einen einzigen Typus zurückführen la
 
 Das Meteoreisen erklärt Herr Dr. Hahn für „Pflanzenfilz“, die Widmanstättenschen Figuren für Pflanzen zellen. Ich erlaube mir, Herrn Dr. Hahn darauf auf merksam zu machen, daß man, wie Daubrée gezeigt hat, in nicht meteorischem Eisen eine den Widmannstätten schen Figuren völlig analoge Struktur hervorbringen kann. Schon Sömmering erkannte (1816), daß die Linien der Widmannstättenschen Figuren sich unter Winkeln von600, 900und 1200 schneiden, welche Winkel dem Oktaëder und Würfel entsprechen. Am Braunauer Eisen laffen sich durch seines Freundes Hahn „durchaus nicht überall folgen zu können“, für die organische Natur der Chondren beibringen wird. Hoffentlich wird er als Fachmann mit weniger Anmaßung und mehr positiven Kenntniffen zu Werke gehen!
 
-Brunn, im Juli 1881.
+Brünn, im Juli 1881.
