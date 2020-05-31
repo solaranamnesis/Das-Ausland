@@ -35,3 +35,14 @@ More About the Animal Remains in the Meteorites by Dr. David Friedrich Weinland 
 [German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/Weiteres-uber-die-Tierreste-in-Meteoriten.pdf)  
 [English Plain Text](1881/26/1/full-text-english.md)  
 [English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/26/1/More-About-the-Animal-Remains-in-the-Meteorites.pdf)  
+
+### Volume 37
+
+#### Article 4
+
+Once Again the "Organisms of the Meteorite" by Anton Rzehak in Brünn
+
+[German Plain Text](1881/37/4/full-text-german.md)  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/Nochmals-die-Organismen-der-Meteorite.pdf)  
+[English Plain Text](1881/37/4/full-text-english.md)  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/Once-Again-the-Organisms-of-the-Meteorite.pdf)  
