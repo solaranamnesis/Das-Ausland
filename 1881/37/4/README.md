@@ -1,6 +1,6 @@
 # Nochmals die Organismen der Meteorite
 
-# Once Again the "Organisms of the Meteorite"
+# Yet Again the "Organisms of the Meteorite"
 
 ## Von Anton Rzehak
 
