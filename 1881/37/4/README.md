@@ -2,7 +2,7 @@
 
 # Yet Again the "Organisms of the Meteorite"
 
-## Von Anton Rzehak
+## By Anton Rzehak
 
 Attempt at a translation from the original Fraktur German, I welcome all pull requests of submitted translations and/or edits.
 
