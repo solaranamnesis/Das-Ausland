@@ -8,4 +8,6 @@ Years ago Dr. Jenzsch, a counsellor of mines and the forerunner of Dr. Hahn, bel
 
 Dr. Hahn is no longer isolated in his view; he has found in Dr. Weinland a defender, who has further convinced a german paleontologist, whose name regrettably was kept secret, of the zoomorphic nature of the chondrules. It is therefore advisable under these circumstances to engage in the impartial examination of the matter and with this I myself call for anyone who can to take the opportunity to scrutinize thin sections of chondrites. Dr. Hahn need not fret at this request; if his views are right, in spite of all attacks, then they will finally become accepted as so.
 
+The essential question to debate is simply: "Is the structure of the chondrules purely mineralogical or not?" 
+
 ...
