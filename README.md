@@ -40,7 +40,7 @@ More About the Animal Remains in the Meteorites by Dr. David Friedrich Weinland 
 
 #### Article 4
 
-Yet Again the "Organisms of the Meteorite" by Anton Rzehak in Brünn
+Yet Again the "Organisms of the Meteorite" by Anton Rzehak of Brünn
 
 [German Plain Text](1881/37/4/full-text-german.md)  
 [German - PDF]()  
