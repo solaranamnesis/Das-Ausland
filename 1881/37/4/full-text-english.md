@@ -10,4 +10,6 @@ Dr. Hahn is no longer isolated in his view; he has found in Dr. Weinland a defen
 
 The essential question to debate is simply: "Is the structure of the chondrules purely mineralogical or not?" 
 
+Most meteorite experts will no doubt answer in the affirmative without further thought; one must however strive to explain and prove in "black and white", with as many arguments as possible demonstrating the inorganic structure of the chondrules, so as not to be accused of Dr. Hahn's "superficiality" and "dishonesty".
+
 ...
