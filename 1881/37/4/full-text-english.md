@@ -12,6 +12,6 @@ The essential question to debate is simply: "Is the structure of the chondrules 
 
 Most meteorite experts will no doubt answer in the affirmative without further thought; one must however strive to explain and prove in "black and white", with as many arguments as possible demonstrating the inorganic structure of the chondrules, so as not to be accused of Dr. Hahn's "superficiality" and "dishonesty".
 
-The idiosyncrasies of the chondrites have already been highlighted by [Gustav] Rose, and probably everyone who has had the opportunity to scrutinize them will reach the same conclusion, that their method of formation is unlike any known method of formation of a terrestrial rock. The analogy of the latter with the chondrites, despite some similiarities, is but an imperfect one.
+The idiosyncrasies of the chondrites have already been highlighted by [Gustav] Rose, and probably everyone who has had the opportunity to scrutinize them will reach the same conclusion, that their method of formation is unlike any known method of formation of a terrestrial rock. The analogy of the latter with the chondrites, despite some similiarities, is but an imperfect one. Gümbel explains the chondrites as clastic rock and Tschermak finds in their peculiar structure certain links to terrestrial tuffs; having said this, he is reminded of the trituration of rigid masses and excludes the action of water during the formation of the chondrite from the outset.
 
 ...
