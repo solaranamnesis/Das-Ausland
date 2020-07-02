@@ -12,4 +12,6 @@ The essential question to debate is simply: "Is the structure of the chondrules 
 
 Most meteorite experts will no doubt answer in the affirmative without further thought; one must however strive to explain and prove in "black and white", with as many arguments as possible demonstrating the inorganic structure of the chondrules, so as not to be accused of Dr. Hahn's "superficiality" and "dishonesty".
 
+The idiosyncrasies of the chondrites have already been highlighted by [Gustav] Rose, and probably everyone who has had the opportunity to scrutinize them will reach the same conclusion, that their distinct methods of formation are unlike any of the known methods of formation of terrestrial rocks.  
+
 ...
