@@ -18,4 +18,6 @@ In the opinion of Dr. Hahn, the chondrites would have to be purely clastic rock,
 
 By no means do the chondrites demonstrate a significant agreement with the clastic rocks of the Earth's crust. According to Gümbel's point of view the meteorites are supposed to emerge from "a kind of primal slagging process of the celestial bodies." As is generally known, Daubrée contrived a very interesting synthetic experiment on the method of formation of the meteorites and replicated the chondrites not only in their composition but also in their structure in an artificial manner fitting with nature. The characteristic balls of olivine and enstatite formed through a melting and cooling of magnesium silicates, hence an entirely different way from all the entirely analogous "organisms" of Dr. Hahn! Meunier also made artificial forms analogous to the chondrules. Based on the analogy of the chondrules with hailstones, Gümbel reasons that the former were formed "thru the agglomeration of mineral forming substances in vapor together with a simultaneous rotating movement"; the unusual manner of formation sufficiently explains the unusual features.
 
+The chondrules display so much conformity in their occurance and habitus that we are able to assume the same kind of formation for all of them.
+
 ...
