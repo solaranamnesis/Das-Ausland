@@ -44,7 +44,7 @@ His evidence is essentially the following:
 
 6\. Hailstones also occur that possess structures similar to that of the chondrites. (Gümbel.)
 
-What is further argued is only criticism of conclusions, which will I leave aside because if my facts are correct then this criticism falls by itself.
+What is further argued is only criticism of conclusions, which I will leave aside because if my facts are correct then this criticism falls by itself.
 
 As far as the authority of the Paris Academy is concerned, I only note that it is the same academy which, for nine years after the publication of Chladni's book on the cosmic origin of meteorites, declared the proposition of falling meteorites as madness but then, after all, it was only after nine years that a post office worker convinced himself of the incorrectness of their previous opinion. Their consolation at the time was the following phrases: "the fool believes", "the half-educated concludes", "the educated verifies", certainly light consolation for such errors (Quenstedt, _Klar und Wahr_ p. 287).
 
