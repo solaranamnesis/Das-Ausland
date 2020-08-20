@@ -22,4 +22,6 @@ The chondrules display so much conformity in their occurance and habitus that we
 
 The formation of the chondritic structure probably allows slight disparities, but only such; the type always remains the same. Indeed, Dr. Hahn himself pointed out the consistent type of his organisms, without knowing that he was thereby expressing a serious objection against his own interpretations. The sequence of transitions among the individual structural forms, as I have shown here (p. 396), cannot possibly be regarded as a genetic one (in the sense of the organic natural sciences).
 
+Dr. Hahn puts extra significance on the eccentricity of the structure.
+
 ...
