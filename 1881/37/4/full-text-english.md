@@ -26,4 +26,6 @@ Dr. Hahn puts extra significance on the eccentricity of the structure. But what 
 
 Chondrules of this type hardly allow themselves to be interpreted as organisms; however, once their structure is recognized as inorganic, it then becomes inadmissible to interpret the ordinary filamentous eccentric chondrules as organic.
 
+Concerning the existence of channels, tubular penetration, and transverse-partition walls, these "organisms" of the meteorite will likely turn out to be recognized as inorganic formations just like the channels of the "intermediate skeleton" and chambering of the _Eozoon canadense_.
+
 ...
