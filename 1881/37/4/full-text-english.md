@@ -28,6 +28,6 @@ Chondrules of this type hardly allow themselves to be interpreted as organisms; 
 
 Concerning the existence of channels, tubular penetration, and transverse-partition walls, these "organisms" of the meteorite will likely turn out to be recognized as inorganic formations just like the channels of the "intermediate skeleton" and chambering of the _Eozoon canadense_.
 
-The rectilinear channels existing in calcite crystals are familiar to all mineralogists, G. Rose has described them extensively. They are related to the molecular construction of the crystals.
+The rectilinear channels existing in calcite crystals are familiar to all mineralogists, G. Rose has described them extensively. They are related to the molecular construction of the crystals. More significant, relating to the channels of the chondrule fibers, are those hair-thin rectilinear channels that G. Rose first identified in the olivine of the pallasites and which were later (1870) described by N. v. Kokscharow
 
 ...
