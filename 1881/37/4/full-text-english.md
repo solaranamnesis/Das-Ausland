@@ -28,4 +28,6 @@ Chondrules of this type hardly allow themselves to be interpreted as organisms; 
 
 Concerning the existence of channels, tubular penetration, and transverse-partition walls, these "organisms" of the meteorite will likely turn out to be recognized as inorganic formations just like the channels of the "intermediate skeleton" and chambering of the _Eozoon canadense_.
 
+The rectilinear channels existing in calcite crystals are familiar to all mineralogists, G. Rose has described them extensively.
+
 ...
