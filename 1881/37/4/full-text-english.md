@@ -30,6 +30,6 @@ Concerning the existence of channels, tubular penetration, and transverse-partit
 
 The rectilinear channels existing in calcite crystals are familiar to all mineralogists, G. Rose has described them extensively. They are related to the molecular construction of the crystals. More significant, relating to the channels of the chondrule fibers, are those hair-thin rectilinear channels that G. Rose first identified in the olivine of the pallasites and which were later (1870) described by N. v. Kokscharow. The olivines in question were richly-faceted crystals!!
 
-One may consider a specific type which belongs to the same category, a form observed by R. v. Drasche in globules of the Lancé meteorite.
+One may consider a specific type which belongs to the same category, a form observed by R. v. Drasche in globules of the Lancé meteorite. The globules displayed a number of battens radiating from an eccentric recumbent point at angles of approximately 45° to the edges, to which again other, shorter ones with similar angles and in larger numbers appeared attached.
 
 ...
