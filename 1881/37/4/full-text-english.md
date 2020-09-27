@@ -32,6 +32,6 @@ The rectilinear channels existing in calcite crystals are familiar to all minera
 
 One may consider a specific type which belongs to the same category, a form observed by R. v. Drasche in globules of the Lancé meteorite. The globules displayed a number of battens radiating from an eccentric recumbent point at angles of approximately 45° to the edges, to which again other, shorter ones with similar angles and in larger numbers appeared attached. The previous battens appear largely hollow under magnification and partially suffused with a dark green, flocculent substance. These channeled battens can hardly be considered as coral tubes or crinoids, given their geometrical arrangement. Perhaps the authority of Dr. Hahn made a novel genus out of it, which mediates the transition of the animals from the – minerals.  
 
-In cross sections the channels naturally give the impression of round openings; as even glass or gas inclusions are capable of being arranged in such a way that they could easily be considered by someone as perforations.
+In cross sections the channels naturally give the impression of round openings; as even glass or gas inclusions are capable of being arranged in such a way that they could easily be considered by someone as perforations. I observed such inclusions in a crystal of the Tieschitz meteorite; because I was indifferent to the mineral substance itself, I did not talk in great detail about the mineralogical nature of these crystals in my critique of Hahn's work.
 
 ...
