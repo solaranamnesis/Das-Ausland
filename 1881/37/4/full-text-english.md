@@ -38,4 +38,6 @@ The cross structure of the fibrous chondrules is often quite irregular, displaye
 
 What these "circular, elliptically shaped areas with a wall" look like, as mentioned by Dr. Hahn (_Das Ausland_, No. 26), despite much hassle myself, I am entirely unable to distinctly envisage; even though I am unable to describe these, I nevertheless think that I have established that many of the chondrules have an inorganic structure; but then how could "all the hundreds of structural forms" that the chondrules display be related collectively through some countless descent, as the famous hyper-Darwinian "sequence of development" demonstrates and which Dr. Hahn has established more with audacity than with consideration, among the sponges, corals, and crinoids.
 
+That the "100 structural forms" can be traced back to a single type is admitted by Dr. Hahn himself and hence answers the question he placed (_Das Ausland_ No. 26, pg. 504) to me.
+
 ...
