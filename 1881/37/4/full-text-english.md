@@ -40,6 +40,6 @@ What these "circular, elliptically shaped areas with a wall" look like, as menti
 
 That the "100 structural forms" can be traced back to a single type is suggested by Dr. Hahn himself and hence answers the question he placed (_Das Ausland_ No. 26, pg. 504) to me. For he has up till now continued to ignore my question: "Why does Dr. Hahn deny the organic nature of the _Eozoon canadense_, since this formation fulfills all the conditions attached to the organic nature of the chondrules?"
 
-Dr. Hahn declares the meteoritic iron as a "fine web of plants", the Widmanstätten patterns as plant cells. I allow myself to draw Dr. Hahn's attention that someone, namely Daubrée, has demonstrated that in non-meteoritic iron a completely analogous structure to that of the Widmanstätten patterns can be generated.
+Dr. Hahn declares the meteoritic iron as a "fine web of plants", the Widmanstätten patterns as plant cells. I allow myself to draw Dr. Hahn's attention that someone, namely Daubrée, has demonstrated that in non-meteoritic iron a completely analogous structure to that of the Widmanstätten patterns can be generated. Sömmering realized as early as 1816 that the lines of the Widmanstätten patterns intersect themselves at angles of 60°, 90° and 120°, angles which correspond to that of the octahedron and cube. Planes of a cube in the Braunau iron can be easily detected through etching; other irons clearly show octahedral and even tetrahedral sheet transits.
 
 ...
