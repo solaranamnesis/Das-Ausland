@@ -44,6 +44,7 @@ Dr. Hahn declares the meteoritic iron as a "fine web of plants", the Widmanstät
 
 It is astonishing that Dr. Hahn did not exploit the existence of coal and carbon compounds in some of the meteorites for his slanting views. While making Dr. Hahn aware of these facts, I am at the same time sad to inform him that two men, would could be allowed to speak a few words on this matter, namely Daubrée and Bischof, about the carbon content of the meteorites, by no means expressed views converging with those of Dr. Hahn.
 
-It would certainly make me very happy if one day it works out that organisms in the meteorites can be determined with reliability, therefore imparting real support for our cosmogenetic theories.
+It would certainly make me very happy if one day it works out that organisms in the meteorites can be determined with reliability, therefore imparting real support for our cosmogenetic theories. I am not a doubter of J. de Luc's sort, who proclaimed that he would never accede to Chladni's view on the cosmic origin of the meteorites, even if "a stone fell down from the sky to his feet."
 
 ...
+
