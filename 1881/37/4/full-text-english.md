@@ -48,6 +48,6 @@ It would certainly make me very happy if one day it works out that organisms in 
 
 It was mentioned that Dr. Hahn is not an "expert"; this fact in no way excuses the technical blunders and conclusions contained in his publication. How can a layman, i.e. a non-expert, himself venturing from the start, establish with apodictic sureness and all number of throw-ins and "unquestionable" claims that reject the achievements of science that stand in contradiction? How can one attempt to discuss an issue that profoundly impinges upon the fields of paleontology, geology, mineralogy, and chemistry, and not be familiar with the relevant disciplines?
 
-I eagerly await the counter proof that Dr. Weinland, who himself concedes that he is "by no means able to follow everywhere" his friend Hahn's explanations go, will produce in favor of the organic nature of the chondrules. Hopefully as an expert he will go to work with less hubris and more affirmative knowledge!
+I eagerly await the counterproof that Dr. Weinland, who himself concedes that he is "by no means able to follow everywhere" his friend Hahn's explanations go, will produce in favor of the organic nature of the chondrules. Hopefully as an expert he will go to work with less hubris and more affirmative knowledge!
 
 Brünn, July 1881.
