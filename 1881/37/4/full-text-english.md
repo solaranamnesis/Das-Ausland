@@ -46,6 +46,8 @@ It is astonishing that Dr. Hahn did not exploit the existence of coal and carbon
 
 It would certainly make me very happy if one day it works out that organisms in the meteorites can be determined with reliability, therefore imparting real support for our cosmogenetic theories. I am not a doubter of J. de Luc's sort, who proclaimed that he would never accede to Chladni's view on the cosmic origin of the meteorites, even if "a stone fell down from the sky to his feet." The statements of Dr. Hahn up till now, along with my own observations, have not yet convinced me of the organic nature of the chondrules.
 
-It was mentioned that Dr. Hahn is not an "expert"; this fact in no way excuses the technical blunders and conclusions contained in his publication. How can a layman, i.e. a non-expert, himself venturing from the start, establish with apodictic sureness and all number of throw-ins "unquestionable" claims that reject the achievements of science that stand in contradiction? How can one attempt to discuss an issue that profoundly impinges upon the fields of paleontology, geology, mineralogy, and chemistry, and not be familiar with these relevant disciplines?
+It was mentioned that Dr. Hahn is not an "expert"; this fact in no way excuses the technical blunders and conclusions contained in his publication. How can a layman, i.e. a non-expert, himself venturing from the start, establish with apodictic sureness and all number of throw-ins "unquestionable" claims that reject the achievements of science that stand in contradiction? How can one attempt to discuss an issue that profoundly impinges upon the fields of paleontology, geology, mineralogy, and chemistry, and not be familiar with the relevant disciplines?
+
+I eagerly await the counter proof that Dr. Weinland, who himself concedes that he is "by no means able to follow everywhere" his friend Hahn's explanations go, will produce in favor of the organic nature of the chondrules.
 
 ...
