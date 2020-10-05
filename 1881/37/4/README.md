@@ -7,6 +7,6 @@
 Attempt at a translation from the original Fraktur German, I welcome all pull requests of submitted translations and/or edits.
 
 [German - Plain Text](full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/.pdf)  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/das_ausland_1881_37_4_german.pdf)  
 [English - Plain Text](full-text-english.md)  
-[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/.pdf)  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/das_ausland_1881_37_4_english.pdf)  
