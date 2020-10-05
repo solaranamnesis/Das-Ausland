@@ -40,7 +40,7 @@ More About the Animal Remains in the Meteorites by Dr. David Friedrich Weinland 
 Yet Again the "Organisms of the Meteorite" by Anton Rzehak
 
 [German Plain Text](37/4/full-text-german.md)  
-[German - PDF]()  
+[German - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/das_ausland_1881_37_4_german.pdf)  
 [English Plain Text](37/4/full-text-english.md)  
-[English - PDF]()  
+[English - PDF](https://cdn.solaranamnesis.com/DasAusland/1881/37/4/das_ausland_1881_37_4_english.pdf)  
 
