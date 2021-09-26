@@ -28,7 +28,7 @@ We kindly ask Mr. Rzehak from Brünn, before he can continue to be heard on the 
 
 Because the issue discussed above is of tremendous importance to modern science, and because of the lively discussion it arouses in the participating circles, the editorial board believes that Dr. Weinland's preceding explanations should be immediately followed by Dr. Otto Hahn's comments. Dr. Otto Hahn writes:
 
-In No. 20 of _Das Ausland_ Mr. Anton Rzehak from Brünn goes against the "Organisms of the Meteorite".
+In No. 20 of _Das Ausland_ Mr. Anton Rzehak from Brünn goes against the "Organisms of the Meteorite."
 
 His evidence is essentially the following:
 
@@ -40,7 +40,7 @@ His evidence is essentially the following:
 
 4\. Enstatite and tourmaline have transverse fissures that can easily be confused with the transverse partition walls of organisms.
 
-5\. In the "feldspar (?)" mineral Mr. Rzehak sees several inclusions with longitudinally arranged rows: he therefore concludes that "obviously" such inclusions in the chondrite minerals have been mistaken for "perforations".
+5\. In the "feldspar (?)" mineral Mr. Rzehak sees several inclusions with longitudinally arranged rows: he therefore concludes that "obviously" such inclusions in the chondrite minerals have been mistaken for "perforations."
 
 6\. Hailstones also occur that possess structures similar to that of the chondrites. (Gümbel.)
 
@@ -78,7 +78,7 @@ Mr. Rzehak does not give an answer to this question, which I had already raised 
 
 Therefore, I have given a number of such under high magnification, like [Table 9](https://cdn.solaranamnesis.com/OttoHahn/figures/meteorite_9-1_edit-b3.jpg) [and 15](https://cdn.solaranamnesis.com/OttoHahn/figures/meteorite_15-1_edit-b3.jpg); I have also supplemented the text with what I could not show, at least through the photographs, at such high magnification.
 
-Against these photographic images of the structure of the chondrites, the author cites and describes his observation, as stated above, of a mineral with a question mark; he thinks it is feldspar. In the mineral (which the author does not know himself) he has observed a "columnar construction". But first of all, you will probably remember, he did not find curved columns, as found in my forms, but rectilinear outlines. Just as well, and far easier, he could have summoned basalt columns as a counter proof.
+Against these photographic images of the structure of the chondrites, the author cites and describes his observation, as stated above, of a mineral with a question mark; he thinks it is feldspar. In the mineral (which the author does not know himself) he has observed a "columnar construction." But first of all, you will probably remember, he did not find curved columns, as found in my forms, but rectilinear outlines. Just as well, and far easier, he could have summoned basalt columns as a counter proof.
 
 The fact that my structures are curved tubes is either overlooked or concealed by Mr. Rzehak, but both are necessary to mention, with the latter doubly so, because my book, as the author himself says, is only in a few hands, while his criticism reaches many hands. Now, tubes!
 
